@@ -1,0 +1,1 @@
+http://www.cnn.com/2012/12/31/world/gallery/new-years/index.html?hpt=hp_c1

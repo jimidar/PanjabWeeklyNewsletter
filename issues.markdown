@@ -17,3 +17,13 @@
 - ਪੰਜਾਬ ਯੂਨੀਵਰਸਿਟੀ (ਪਾਕਿਸਤਾਨ) ਵਿੱਚ ਕੁੱਝ [ਨੌਕਰੀਆਂ](http://pu.edu.pk/careers/) ਲਈ ਅਰਜੀਆਂ ਮੰਗੀਆਂ ਗਈਆਂ।
 
 - ਕੀ ਭਗਵੰਤ ਮਾਨ AAP ਵਲੋਂ [ਪੰਜਾਬ ਦੇ ਮੁੱਖ ਮੰਤਰੀ](http://www.punjabhub.com/2014/05/2169)  ਦੇ ਉਮੀਦਵਾਰ ਹੋ ਸਕਦੇ ਹਨ?
+
+- ਚੰਡੀਗੜ੍ਹ ਵਿੱਚ ਸ਼ੁੱਕਰਵਾਰ ਤੋਂ [ਚਾਲਕ ਲਾਇਸੈਂਸ ਦੀ ਪ੍ਰੀਖਿਆ ਪੰਜਾਬੀ ਵਿੱਚ](http://timesofindia.indiatimes.com/city/chandigarh/From-Friday-take-drivers-licence-test-in-Punjabi/articleshow/35490010.cms) ਹੋਇਆ ਕਰੇਗੀ। ਜਿੱਥੇ ਇੱਕ ਪਾਸੇ ਪੂਰਬੀ ਪੰਜਾਬ ਵਿੱਚ ਪੰਜਾਬੀ ਦੀ ਬਿਹਤਰੀ ਤੇ ਅੰਗਰੇਜੀ ਤੋਂ ਅਣਜਾਣ ਲੋਕਾਂ ਲਈ ਬਹੁਤ ਵੱਡੀ ਰਾਹਤ ਵਾਲੇ ਕਦਮ ਚੁੱਕੇ ਜਾ ਰਹੇ ਹਨ ਉੱਥੇ ਪੱਛਮੀ ਪੰਜਾਬ ਵਿੱਚ [ਪੰਜਾਬੀ ਭਾਸ਼ਾ](http://tribune.com.pk/story/713112/ki-kehnda-most-widely-spoken-mother-tongue-ignored-in-local-schools/) ਨੂੰ ਕੀਤਾ ਜਾ ਰਿਹਾ ਹੈ ਅਣਗੌਲਿਆ।
+
+- [ਕਾਮਾਗਾਟਾਮਾਰੂ ਘਟਨਾਕ੍ਰਮ](http://www.straight.com/news/651056/gurpreet-singh-komagata-maru-centenary-brings-indigenous-canadians-and-south-asians-together) ਦੇ ਇੱਕ ਸਦੀ ਬੀਤ ਜਾਣ ਦੇ ਮੌਕੇ ਨੇ ਕੀਤਾ ਮੂਲ ਕੈਨੇਡੀਅਨ ਨਿਵਾਸੀ ਅਤੇ ਦੱਖਣ ਏਸ਼ੀਆਈ ਭਾਈਚਾਰਾ ਇੱਕਜੁੱਟ। ਕਾਮਾਗਾਟਾਮਾਰੂ ਨਾਲ ਸੰਬੰਧਿਤ ਘਟਨਾਵਾਂ ਦੀ [ਸਿਲਸਿਲੇਵਾਰ ਤਰਤੀਬ](http://ottawacitizen.com/news/national/timeline-the-komagata-maru-incident-1914)।
+
+- ਪੰਜਾਬ ਵਿੱਚ [ਜਾਇਦਾਦ ਟੈਕਸ](http://www.business-standard.com/article/pti-stories/punjab-extends-last-date-of-property-tax-payment-to-june-30-114052301400_1.html) ਦੀ ਆਖਰੀ ਮਿਤੀ ਜੂਨ 30 ਤੱਖ ਵਧਾਈ ਗਈ।
+
+- ਪਾਕਿਸਤਾਨੀ ਪੰਜਾਬ ਵੱਲੋਂ ਚੀਨ ਦੀ ਕੰਪਨੀ ਨਾਲ [ਮੈਟਰੋ ਰੇਲ](http://www.brecorder.com/business-a-economy/189/1185216/) ਲਈ ਸਮਝੌਤਾ।
+
+- [ਸੁਮੇਧ ਸੈਣੀ](http://www.punjabhub.com/2014/05/2232) ਨੇ ਪੰਜਾਬ ਦੇ ਡੀ ਜੀ ਪੀ ਦਾ ਅਹੁਦਾ ਮੁੜ ਤੋਂ ਸੰਭਾਲਿਆ।

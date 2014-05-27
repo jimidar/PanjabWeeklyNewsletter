@@ -3,3 +3,9 @@
 - ਕੈਲੇਫੋਰਨੀਆ ਦੇ ਮੈਨਟਿਕਾ ਸ਼ਹਿਰ ਦੇ ਯੋਜਨਾਬੰਦੀ ਕਮਿਸ਼ਨ ਵਿੱਚ ਪਹਿਲੇ [ਪੰਜਾਬੀ ਭਾਰਤੀ](http://www.mantecabulletin.com/section/174/article/106270/) ਦੀ ਨਿਯੁਕਤੀ।
 
 - ਅਮਰੀਕੀ ਸਿੱਖ ਸੰਸਥਾ ਵੱਲੋਂ ਪੰਜਾਬ ਵਿਚਲੇ ਜਰੂਰਤਮੰਦ ਵਿਦਿਆਰਥੀਆਂ ਲਈ [$330K ਜੁਟਾਏ](http://zeenews.india.com/news/world/sikh-americans-raise-usd-330k-for-needy-students-in-punjab_933743.html) ਗਏ।
+
+- ਪੰਜਾਬ ਸਰਕਾਰ ਵੱਲੋਂ ਦਸਵੀਂ ਦੀ ਪ੍ਰੀਖਿਆ ਵਿੱਚ ਪਹਿਲੇ ਤਿੰਨ ਸਥਾਨਾਂ ਤੇ ਆਉਣ ਵਾਲੇ ਵਿਦਿਆਰਥੀਆਂ ਨੂੰ [2.25 ਲੱਖ ਰੁਪਏ ਇਨਾਮ](http://timesofindia.indiatimes.com/city/chandigarh/Punjab-government-awards-Rs-2-25-lakh-cash-to-class-10th-top-three-students/articleshow/35521656.cms) ਦੇਣ ਦਾ ਫੈਸਲਾ।
+
+- ਮੈਨੂੰ ਮੇਰੀ [ਦਾਹੜੀ](http://www.dnaindia.com/lifestyle/report-my-beard-gives-me-confidence-harnaam-kaur-1991074) ਤੋਂ ਮਿਲਦਾ ਹੈ ਆਤਮ ਵਿਸ਼ਵਾਸ - ਹਰਨਾਮ ਕੌਰ ਦਾ ਖੁਲਾਸਾ।
+
+- [ਸਰਵਣ ਸਿੰਘ](http://www.sportskeeda.com/athletics/forgotten-heroes-india-sarwan-singh-athletics/) - ਮਿੱਟੀ ਵਿੱਚ ਰੁਲ ਗਿਆ ਇੱਕ ਹੀਰਾ।

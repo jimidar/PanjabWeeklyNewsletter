@@ -1,4 +1,4 @@
-- [ਮੈਂ ਨੀ ਵਿਆਹ ਕਰਵਾਉਣਾ](http://www.youtube.com/watch?v=3hYLWodzRWw) - ਜੇਕਰ ਕਿਸੇ 4 ਸਾਲ ਦੇ ਜਵਾਕ ਨੂੰ ਇੰਡੀਆ ਜਾਣ ਤੇ ਵਿਆਹ ਕਰਵਾਉਣ ਚੋਂ ਇਕ ਚੁਨਣਾ ਹੀ ਪਏ ਤਾਂ?
+- ਟਵਿੱਟਰ ਉੱਤੇ [ਹਨੀ ਸਿੰਘ](http://zeenews.india.com/entertainment/celebrity/honey-singh-jokes-trend-on-twitter-after-xpose-release_155167.html) ਉੱਪਰ ਮਖੌਲਾਂ ਦੀ ਭਰਮਾਰ।
 
 - [ਮੁੰਡਾ ਸਾਡਾ ਯੂ.ਕੇ. ਚੱਲਿਆ](http://www.youtube.com/watch?v=mnfpo0bXrrY) - ਪਿੰਡੋਂ ਆਏ ਦੇਸੀ ਦੀ ਯੂ.ਕੇ. ਆ ਕੇ ਦੀ ਦਾਸਤਾਨ
 

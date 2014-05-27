@@ -1,6 +1,6 @@
-- [Roots of Love/ਪਿਆਰ ਦੀਆਂ ਜੜਾਂ](http://www.youtube.com/watch?v=I0uzQJ0IBv0) - ਹਰਜੰਤ ਗਿੱਲ, ਜੋ ਕਿ ਹੁਣ [ਟੌਅਸਨ ਯੁਨੀਵਰਸਿਟੀ ਵਿੱਚ ਪ੍ਰੋਫੈਸਰ](http://www.towson.edu/sociology/3%20-%20Faculty%20Information/faculty/gill.asp) ਹੈ,  ਨੂੰ ਮੈਂ [ਪਹਿਲੀ ਸਿਖੌਲਰ ਕੌਂਨਫਰੈਂਸ](http://www.sikholars.org) ਵੇਲੇ ਤੋਂ ਜਾਣਦਾ ਹਾਂ। ਉਸਦੀ ਇਹ ਫਿਲਮ ਪੰਜਾਬ ਵਿੱਚ ਕੇਸਾਂ ਅਤੇ ਦਸਤਾਰ ਦੀ ਬਦਲਦੀ ਹੋਈ ਅਸਲੀਅਤ ਨੂੰ ਦਸਤਾਵੇਜ ਕਰਦਾ ਇੱਕ ਬਹੁਤ ਸੁਹਣਾ ਉਪਰਾਲਾ ਹੈ।
+- [ਫੁਕਰੇ 2 ](http://www.bollywoodlife.com/news/mrigdeep-singh-lamba-we-are-working-on-the-script-for-fukrey-2/) ਲਈ ਕਹਾਣੀ ਉੱਤੇ ਕੰਮ ਜਾਰੀ।
 
-- [ਸਰਬੱਤ ਦੇ ਭਲੇ ਦੀ ਖੇਤੀ](http://vimeo.com/26259403) - ਖੇਤੀ ਵਿਰਾਸਤ ਮਿਸ਼ਨ ਨਾਲ ਕੰਮ ਕਰਦਿਆਂ ਅਮਰਜੀਤ ਸ਼ਰਮਾ ਨੇ ਆਪਣੇ ਛੋਟੇ ਜਿਹੇ ਜਮੀਨ ਦੇ ਟੁਕੜੇ ਨੂੰ ਕੁਦਰਤੀ ਖੇਤੀ ਵੱਲ ਮੋੜਿਆ, ਇਕ ਇਸ ਤਰਾਂ ਦੀ ਖੇਤੀ ਜੋ ਗੁਰੂ ਨਾਨਕ ਦੀ ਬਾਣੀ ਤੋਂ ਸੇਧ ਲੈ ਤੁਰਦੀ ਹੈ। ਇਹ ਫਿਲਮ ["ਦਾ ਸੋਰਸ ਪ੍ਰਾਜੈਕਟ"](http://www.thesourcefilm.org/) ਦਾ ਹਿੱਸਾ ਨੇ।
+- PIFF - ਪੰਜਾਬੀ ਅੰਤਰਰਾਸ਼ਟਰੀ ਫਿਲਮ ਸਮਾਰੋਹ ਅਤੇ IFFSA - ਦੱਖਣੀ ਏਸ਼ੀਆਈ ਅੰਤਰਰਾਸ਼ਟਰੀ [ਫਿਲਮ ਸਮਾਰੋਹ](http://www.mississauga.com/whatson-story/4532015-piff-iffsa-conclude-successful-festival/) ਸਫਲਤਾਪੂਰਵਕ ਸਮਾਪਤ।
 
 - [ਸਾਹਿਬਜ਼ਾਦੇ](http://www.youtube.com/watch?v=JNn0-MwNwow) - ਇਹ ਐਨੀਮੇਟਿਡ ਫਿਲਮ ਵਿਸਮਾਦ ਫਿਲਮ ਵੱਲੋਂ ਸਾਹਿਬਜ਼ਾਦਿਆਂ ਦੀ ਸ਼ਹੀਦੀ ਉਤੇ ਆਧਾਰਿਤ ਹੈ। ਅਸੀਂ ਫਿਲਮ ਦੇ ਡਾਇਰੈਕਟਰ ਸੁਖਵਿੰਦਰ ਸਿੰਘ ਦੇ ਨਾਲ ਅਸੀਂਂ ਪਿਛਲੇ ਸਾਲ ਇੰਟਰਵਿਉ ਕੀਤੀ [ਜੋ ਤੁਸੀ ਇਥੇ ਸੁਣ ਸਕਦੇ ਹੋ।](http://vehdaa.com/interviews/sukhwinder-singh.html)
 

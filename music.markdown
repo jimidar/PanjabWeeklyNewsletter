@@ -1,3 +1,2 @@
-- [ਸਨੀ ਲਿਉਨੀ](http://indianexpress.com/article/entertainment/bollywood/sunny-leone-to-star-in-punjabi-music-video-with-girik-amin/) ਹਿੰਦੀ ਫਿਲਮਾਂ ਤੋਂ ਬਾਅਦ ਹੁਣ ਪੰਜਾਬੀ ਗੀਤ ਦੇ ਵੀਡੀਉ ਵਿੱਚ ਵੀ ਵਿਖਾਈ ਦੇਵੇਗੀ। 
-
-- ਪੰਜਾਬੀ ਗੀਤ ਹੋਣ ਲੱਗੇ ਤਕਨੀਕੀ ਸ਼ਬਦਾਂ ਨਾਲ ਭਰਪੂਰ। ਫੇਸਬੁੱਕ ਵਾਂਗ ਮੋਬਾਇਲ ਤੇ ਮਕਬੂਲ ਹੋਣ ਤੋਂ ਬਾਅਦ [ਵੱਟਸ-ਐਪ - Whatsapp](http://www.bgr.in/news/now-a-punjabi-love-song-titled-whatsapp/) ਨੇ ਪੰਜਾਬੀ ਗੀਤਾਂ ਵਿੱਚ ਵੀ ਥਾਂ ਬਣਾਈ।
+- [ਹਾਰਡ ਕੌਰ](http://www.socialsamosa.com/2014/05/hard-kaur/?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+SocialSamosa+(Social+Samosa)) ਦੇ ਲਈ ਸ਼ੋਸਲ ਮੀਡੀਆ ਦੀ ਅਹਿਮੀਅਤ ਤੇ ਇਸਦੀ ਵਰਤੋਂ।
+- ਹਨੀ ਸਿੰਘ ਦੀ ਸ਼ਖਸ਼ੀਅਤ ਦਾ [ਇੱਕ ਹੋਰ ਰੂਪ](http://www.dnaindia.com/entertainment/report-honey-singh-launches-fight-club-1991441)।

@@ -1,1 +1,1 @@
-We are back with new edition. We have decided to alternate editions in Punjabi and English? What do you guys think?
+Your favorite Panjab Weekly will now be in Punjabi and English languages with alternative edition each week.

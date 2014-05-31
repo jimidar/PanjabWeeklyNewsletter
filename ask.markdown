@@ -6,6 +6,5 @@
 
 ਸਤਿ ਸ਼੍ਰੀ ਅਕਾਲ।
 
-ਅਰਵਿੰਦਰ ਸਿੰਘ ਕੰਗ
-
-[@askang](http://twitter.com/askang)
+ਟੀਮ ਪੰਜਾਬ ਵੀਕਲੀ।
+[@panjabweekly](http://twitter.com/panjabweeklyaskang)

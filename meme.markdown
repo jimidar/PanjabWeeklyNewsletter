@@ -1,17 +1,11 @@
-- ਟਵਿੱਟਰ ਉੱਤੇ [ਹਨੀ ਸਿੰਘ](http://zeenews.india.com/entertainment/celebrity/honey-singh-jokes-trend-on-twitter-after-xpose-release_155167.html) ਉੱਪਰ ਮਖੌਲਾਂ ਦੀ ਭਰਮਾਰ।
+- ਭਗਵੰਤ ਮਾਨ ਦੀ ਪੰਜਾਬੀ ਗਾਇਕਾਂ ਉਤੇ ਚੋਟ - [ਬਾਦਲਾਂ ਦੀ ਘੁਰਕੀ](https://www.youtube.com/watch?v=t793_AP6am4)
 
-- [ਮੁੰਡਾ ਸਾਡਾ ਯੂ.ਕੇ. ਚੱਲਿਆ](http://www.youtube.com/watch?v=mnfpo0bXrrY) - ਪਿੰਡੋਂ ਆਏ ਦੇਸੀ ਦੀ ਯੂ.ਕੇ. ਆ ਕੇ ਦੀ ਦਾਸਤਾਨ
+- [michael kors ਜਾਂ ਮਾਈਕਲ ਕੌਰ](http://www.punjabivines.com/3544)
 
-- [ਜਨ ਗਨ ਮਨ](http://www.youtube.com/watch?v=C_xfYKfwW6w) - ਤੁਸੀਂ ਇਸ ਤੋਂ ਬਿਹਤਰ ਜਨ ਗਨ ਮਨ ਸ਼ਾਇਦ ਹੀ  ਕਦੇ ਸੁਣਿਆ ਹੋਵੇ।
+- ਹਨੀ ਸਿੰਘ ਦੇ ਗਾਣੇ ਦੀ [ਅਸਲ ਸ਼ੂਟਿੰਗ ਕਿੱਦਾਂ ਦੀ ਹੋਉ?](https://vine.co/v/MKqnijZajzn) 
 
-- [ਪੀਰ](http://www.youtube.com/watch?v=bjiFQXOJPzU) - ਪੀਰਾਂ ਦੀ ਦਾਸਤਾਨ, ਇਕ ਲਹਿੰਦੇ ਪੰਜਾਬੀ ਦੀ ਜ਼ੁਬਾਨੀ।
+- [ਗੁੱਸਾ ਨੀ ਕਰੀਦਾ ਬਾਈ](https://www.youtube.com/watch?v=tIcKfz3TKfM)
 
-# This is H1
-## This is h2
-### This is h3
+- ਪੰਜਾਬੀ ਵਿਆਹਾਂ ਤੇ [ਪਾਣੀ ਦਾ ਪੈਕ ਖੋਲਣ ਦਾ ਵਧੀਆ ਤਰੀਕਾ](https://www.youtube.com/watch?v=uZt-1bjhU7Q)
 
-1. number 1
-2. number 2
-
-
-This news if from [bbc.com](http://google.com)
+- [ਗੋਲੀ ਵਾਲਾ ਬੱਤਾ](https://www.youtube.com/watch?v=k8lwoPb6PFc)

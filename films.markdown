@@ -1,7 +1,7 @@
 - PIFF - ਪੰਜਾਬੀ ਅੰਤਰਰਾਸ਼ਟਰੀ ਫਿਲਮ ਸਮਾਰੋਹ ਅਤੇ IFFSA - ਦੱਖਣੀ ਏਸ਼ੀਆਈ ਅੰਤਰਰਾਸ਼ਟਰੀ [ਫਿਲਮ ਸਮਾਰੋਹ](http://www.mississauga.com/whatson-story/4532015-piff-iffsa-conclude-successful-festival/) ਸਫਲਤਾਪੂਰਵਕ ਸਮਾਪਤ।
 
-- [ਮੁੰਡਿਆਂ ਤੋਂ ਬੱਚ ਕੇ ਰਹੀਂ](http://www.punjabiportal.com/forum/mundeyan-toh-bach-ke-rahin-punjabi-film-t13378.html) ਨਵੀਂ ਆਉਣ ਵਾਲੀ ਪੰਜਾਬੀ ਫਿਲਮ 30 ਮਈ ਨੂੰ ਬਣੇਗੀ ਤੁਹਾਡੇ ਨਜਦੀਕੀ ਸਿਨੇਮਾ ਘਰ ਦਾ ਸ਼ਿੰਗਾਰ।
+- ਇਨਸਾਫ ਨਾ ਦੀ ਸੰਸਥਾ ਨੇ 90 ਦੇ ਦਹਾਕੇ ਦੇ ਪੰਜਾਬ ਵਿੱਚ ਪੁਲਿਸ ਵੱਲੋਂ ਝੂਠੇ ਮੁਕਾਬਲਿਆਂ ਵਿੱਚ ਮਾਰੇ ਨੌਜਵਾਨਾਂ ਬਾਰੇ ਫਿਲਮ [The Last Killing](https://www.youtube.com/watch?v=bKmxqqhlPD0) "ਆਖਰੀ ਮੌਤ" ਯੂਟਿਉਬ ਤੇ ਜਾਰੀ ਕੀਤੀ।
 
-- [ਫੁਕਰੇ 2 ](http://www.bollywoodlife.com/news/mrigdeep-singh-lamba-we-are-working-on-the-script-for-fukrey-2/) ਲਈ ਕਹਾਣੀ ਉੱਤੇ ਕੰਮ ਜਾਰੀ।
+- ਪੰਜਾਬੀ ਦੇ ਕਾਲੇ ਦੌਰ ਦੇ ਬਾਰੇ ਦੋ ਫਿਲਮਾਂ ਇਸ ਮਹੀਨੇ ਸਿਨਮਾਂ ਘਰਾਂ ਵਿੱਚ ਆ ਰਹੀਆਂ ਹਨ। ਨਿਰਦੇਸ਼ਕ ਰਾਜੀਵ ਸ਼ਰਮਾ ਦੀ [47 to 84 - ਹੁਣ ਮੈਂ ਕਿਸਨੂੰ ਵਤਨ ਕਹਾਂਗਾ](https://www.youtube.com/watch?v=dJZmHNCtgMY) ਜੋ ਕਿ 30 ਮਈ ਨੂੰ ਆ ਰਹੀ ਹੈ ਅਤੇ  ਨਿਰਦੇਸ਼ਕ ਅਨੁਰਾਗ ਸਿੰਘ ਦੀ [ਪੰਜਾਬ 1984](https://www.youtube.com/watch?v=1ZbW4agcxaE) ਜੋ ਜੋ ਕਿ 27 ਜੂਨ ਨੂੰ ਆ ਰਹੀ ਹੈ।
 
-- ਅਰਚਨਾ ਪੂਰਨ ਸਿੰਘ ਲਵੇਗੀ ਜੱਜ [ਫ਼ਰਹਾ ਖਾਨ](http://timesofindia.indiatimes.com/entertainment/hindi/tv/news-interviews/Archana-Puran-Singh-to-replace-Farah-Khan/articleshow/35439857.cms) ਦੀ ਥਾਂ।
+-  ਨਵੀਂਆਂ ਪੰਜਾਬੀ ਫਿਲਮਾਂ ਵਿੱਚ [ਮੁੰਡਿਆਂ ਤੋਂ ਬੱਚ ਕੇ ਰਹੀਂ](http://www.punjabiportal.com/forum/mundeyan-toh-bach-ke-rahin-punjabi-film-t13378.html), ਦਿਲ ਵਿਲ ਪਿਆਰ ਵਿਆਰ, ਰੋਮੀਓ ਰਾਂਝਾ ਦੇ ਨਾਂ ਰਹੇ। 

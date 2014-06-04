@@ -4,8 +4,25 @@
 
 - ਔਰਤਾਂ ਦੀ ਅਜਾਦੀ ਤੇ ਬਰਾਬਰੀ ਲਈ ਜਿੱਥੇ ਦੁਨੀਆ ਭਰ ਵਿੱਚ ਸਿਰਤੋੜ ਯਤਨ ਹੋ ਰਹੇ ਹਨ ਉੱਥੇ ਹੀ [ਔਰਤਾਂ ਵਿਰੁੱਧ](http://thelinkpaper.ca/?p=37781) [ਜੁਰਮਾਂ](http://www.theguardian.com/world/2014/may/28/pregnant-woman-beaten-death-family-pakistan-court) ਵਿੱਚ ਵੀ [ਕਮੀਂ ਨਹੀਂ](http://www.hindustantimes.com/punjab/patiala/man-beats-up-divorced-wife-to-death/article1-1223452.aspx) ਹੋ ਰਹੀ। ਕੀ [ਇਨਸਾਫ ਵਿੱਚ ਦੇਰੀ ਤੇ ਹਲਕੀਆਂ ਸਜਾਵਾਂ](http://timesofindia.indiatimes.com/City/Delhi/10-year-jail-to-2-for-raping-woman-in-moving-bus/articleshow/35611599.cms) ਵੀ ਹਨ ਇੱਕ ਕਾਰਨ?
 
-- ਅਕਾਲੀ ਭਾਜਪਾ ਸਰਕਾਰ ਵੱਲੋਂ ਲੋਕਾਂ ਨੂੰ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਾਉਣ ਵਿੱਚ [ਵੱਡੀ ਵਿੱਤੀ ਰਾਹਤ](http://www.business-standard.com/article/economy-policy/punjab-waives-stamp-duty-on-property-transfer-to-kin-114052601270_1.html)। ਖੁਨ ਦੇ ਰਿਸ਼ਤੇ ਵਿੱਚ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਵਾਉਣ ਤੇ [ਨਹੀਂ ਲੱਗੇਗੀ ਸਟੈਂਪ ਡਿਊਟੀ](http://thelinkpaper.ca/?p=37783)। [ਜਾਇਦਾਦ ਕਰ](http://www.hindustantimes.com/punjab/chandigarh/punjab-local-bodies-dept-to-get-feedback-on-property-tax/article1-1223096.aspx) ਤੇ ਵੀ ਲਈ ਜਾਏਗੀ ਲੋਕਾਂ ਦੀ ਰਾਇ।
+- ਅਕਾਲੀ ਭਾਜਪਾ ਸਰਕਾਰ ਵੱਲੋਂ ਲੋਕਾਂ ਨੂੰ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਾਉਣ ਵਿੱਚ [ਵੱਡੀ ਵਿੱਤੀ ਰਾਹਤ](http://www.business-standard.com/article/economy-policy/punjab-waives-stamp-duty-on-property-transfer-to-kin-114052601270_1.html)। ਖੂਨ ਦੇ ਰਿਸ਼ਤੇ ਵਿੱਚ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਵਾਉਣ ਤੇ [ਨਹੀਂ ਲੱਗੇਗੀ ਸਟੈਂਪ ਡਿਊਟੀ](http://thelinkpaper.ca/?p=37783)। [ਜਾਇਦਾਦ ਕਰ](http://www.hindustantimes.com/punjab/chandigarh/punjab-local-bodies-dept-to-get-feedback-on-property-tax/article1-1223096.aspx) ਤੇ ਵੀ ਲਈ ਜਾਏਗੀ ਲੋਕਾਂ ਦੀ ਰਾਇ।
 
-- ਹਾਕੀ ਗੋਲਕੀਪਰ ਬਲਜੀਤ ਦੇ ਸੱਟ ਲੱਗਣ ਕਾਰਨ ਖੇਡ ਛੱਡ ਜਾਣ ਤੋਂ ਬਾਅਦ ਇੱਕ ਹੋਰ ਬੁਰੀ ਖ਼ਬਰ ਹਾਲੈਂਡ ਦੇ ਹੇਗ ਸ਼ਹਿਰ ਤੋਂ ਜਿੱਥੇ [ਰਮਨਦੀਪ ਦੇ ਵੀ ਸੱਟ](http://indianexpress.com/article/sports/hockey/hit-in-the-eye-ramandeep-undergoes-surgery-at-hague/) ਲੱਗਣ ਕਾਰਨ ਅੱਖ ਅਤੇ ਗੱਲ੍ਹ ਦੀ ਹੱਡੀ ਬੁਰੀ ਤਰ੍ਹਾਂ ਜਖਮੀ।
+- ਹਾਕੀ ਗੋਲਕੀਪਰ ਬਲਜੀਤ ਦੇ ਸੱਟ ਲੱਗਣ ਕਾਰਨ ਖੇਡ ਛੱਡ ਜਾਣ ਤੋਂ ਬਾਅਦ ਇੱਕ ਹੋਰ ਬੁਰੀ ਖ਼ਬਰ ਹਾਲੈਂਡ ਦੇ ਹੇਗ ਸ਼ਹਿਰ ਤੋਂ ਜਿੱਥੇ [ਰਮਨਦੀਪ ਦੇ ਵੀ ਸੱਟ](http://indianexpress.com/article/sports/hockey/hit-in-the-eye-ramandeep-undergoes-surgery-at-hague/) ਲੱਗਣ ਕਾਰਨ ਅੱਖ ਅਤੇ ਗੱਲ੍ਹ ਦੀ ਹੱਡੀ ਬੁਰੀ ਤਰ੍ਹਾਂ ਜਖਮੀ। ਭਾਰਤ ਦੀ [ਸੈਮੀ-ਫਾਈਨਲ ਤੱਕ ਪਹੁੰਚ](http://ibnlive.in.com/news/semifinal-finish-in-wc-will-be-big-for-indian-hockey-pargat-singh/475295-5-136.html) ਹੀ ਵੱਡੀ ਪ੍ਰਾਪਤੀ ਹੋਵੇਗੀ - ਪਰਗਟ ਸਿੰਘ।
 
+- ਸ਼੍ਰੋਮਣੀ ਗੁਰੂਦੁਆਰਾ ਪ੍ਰਬੰਧਕ ਕਮੇਟੀ ਨੂੰ ਪੰਜਾਬੀ ਬੋਲੀ ਦਾ ਆਇਆ ਚੇਤਾ। [ਪੰਜਾਬੀ](http://www.sikh24.com/2014/05/sgpc-ties-up-with-private-firm-to-uphold-punjabi-among-youth/#.U41qhRYnK1A) ਦੀ ਬਿਹਤਰੀ ਤੇ ਪਸਾਰ ਲਈ ਕੀਤਾ ਇੱਕ ਨਿੱਜੀ ਕੰਪਨੀ ਨਾਲ ਸਮਝੌਤਾ। ਇੱਕ ਹੋਰ ਖਬਰ ਅਨੁਸਾਰ ਜਥੇਦਾਰ ਮੱਕੜ ਨੇ ਪੰਜਾਬੀ ਯੂਨੀਵਰਸਿਟੀ ਵੱਲੋਂ [ਪੰਜਾਬੀ ਭਾਸ਼ਾ ਨੂੰ ਖੁੱਡੇ ਲਾਈਨ ਲਾਉਣ](http://www.hindustantimes.com/punjab/chandigarh/makkar-writes-to-pu-chancellor-on-bias-to-punjabi/article1-1224228.aspx) ਦੇ ਮਸਲੇ ਤੇ ਲਿਖੀ ਚਿੱਠੀ।
+
+- ਮਈ 29 ਤੋਂ ਜੂਨ 7 ਤੱਕ [ਭੰਗੜਾ ਫੈਸਟੀਵਲ](http://www.asianpacificpost.com/article/6196-city-bhangra-festival-starts-may-29.html) ਵਧਾਏਗਾ ਵੈਨਕੂਵਰ ਦੀਆਂ ਰੌਣਕਾਂ। [ਪੱਛਮੀ ਪੰਜਾਬ ਦੇ ਸੱਭਿਆਚਾਰ](http://www.vancouverdesi.com/news/city-of-bhangra-fest-will-focus-on-pakistani-side-of-punjab-culture/755098/) ਤੇ ਵੀ ਕੀਤਾ ਜਾਵੇਗਾ ਗੌਰ।
+
+- ਪੰਜਾਬ ਸਰਕਾਰ ਵੱਲ਼ੋਂ ਕਿਸਾਨਾਂ ਨੂੰ ਕੀਤੀ ਗਈ [ਕਣਕ ਦੀ ਕੀਮਤ ਦੀ ਰਿਕਾਰਡ ਅਦਾਇਗੀ](http://www.ianslive.in/index.php?param=news/Punjab_pays_record_Rs15473_crore_to_farmers_for_wheat-425183/BUSINESS/5)।
+
+- ਪਾਕਿਸਤਾਨੀ ਪੰਜਾਬ ਅਸੈਂਬਲੀ ਵਿੱਚ ਗੁਰੂ ਨਾਨਕ ਜੀ ਦੇ [ਜਨਮ ਦਿਹਾੜੇ ਤੇ ਜਨਤਕ ਛੁੱਟੀ](http://tribune.com.pk/story/714317/punjab-assembly-approves-resolution-to-make-guru-nanaks-birthday-a-public-holiday/) ਕਰਨ ਦਾ ਮਤਾ ਪਾਸ।
+
+- ਸਾਬਕਾ ਅਮਰੀਕੀ ਫੌਜੀ ਨੂੰ ਗੋਲੀ ਮਾਰ ਕੇ ਮਾਰ ਦੇਣ ਦੇ ਮਸਲੇ ਤੇ [ਪੰਜਾਬੀ ਭਾਈਚਾਰਾ ਦੋਫਾੜ](http://www.npr.org/blogs/codeswitch/2014/05/29/315941286/shooting-of-sikh-army-veteran-divides-community) ਹੋਇਆ। ਕੀ ਪਰਮਿੰਦਰ ਸਿੰਘ ਸ਼ੇਰਗਿੱਲ ਨੂੰ ਗੋਲੀ ਮਾਰਨਾ ਜਰੂਰੀ ਸੀ ਜਾਂ ਇਸ ਤੋਂ ਬਚਿਆ ਜਾ ਸਕਦਾ ਸੀ?
+
+- ਪੰਜਾਬ ਵਿੱਚ ਮੋਬਾਇਲ ਕੰਪਨੀ [ਆਈਡੀਆ ਵੱਲੋਂ 3G ਸੇਵਾਵਾਂ](http://articles.economictimes.indiatimes.com/2014-05-30/news/50211217_1_3g-services-idea-cellular-intra-circle-roaming) ਸ਼ੁਰੂ।
+
+- ਪੰਜਾਬ ਸਰਕਾਰ ਵੱਲੋਂ ਪੁਲਸ ਮਹਿਕਮੇ ਨੂੰ [NSEL ਦੀ ਡਿਫਾਲਟਰਾਂ ਤੋਂ ਵਸੂਲੀ](http://www.business-standard.com/article/markets/punjab-govt-asks-local-eow-to-assist-nsel-recover-dues-from-5-defaulters-114052901626_1.html) ਵਿੱਚ ਮਦਦ ਕਰਨ ਦੀਆਂ ਹਦਾਇਤਾਂ।
 - []()
+
+- [ਵਿਸ਼ਵ ਸਿੱਖ ਸੰਸਥਾ](http://worldsikh.ca) ਦੇ ਉਪਰਾਲੇ ਨਾਲ ਕੈਨੇਡੀਅਨ ਕੰਪਨੀ ਨੇ ਬਣਾਈ [ਕ੍ਰਿਪਾਨ ਪਾ ਕੇ ਕੰਮ ਕਰਨ ਦੀ ਪ੍ਰਵਾਨਗੀ](http://timesofindia.indiatimes.com/India/Canadian-firm-makes-policy-for-accommodating-kirpans-for-baptized-Sikhs/articleshow/35801835.cms) ਦੀ ਨੀਤੀ।
+
+- ਸਰਕਾਰ ਵੱਲੋਂ ਪੰਜਾਬ ਵਿੱਚ ਧੜੱਲੇ ਨਾਲ ਵਿਕਦੇ ਨਸ਼ਿਆਂ ਨੂੰ ਨੱਥ ਪਾਉਣ ਲਈ [ਨਸ਼ਾ ਰੋਕੂ ਬਿਊਰੋ](http://www.dnaindia.com/india/report-punjab-to-set-up-drug-control-bureau-1992650) ਬਣਾਇਆ ਜਾਵੇਗਾ ਅਤੇ ਸੁਖਬੀਰ ਬਾਦਲ ਨੇ ਕਿਹਾ ਕਿ ਪੰਜਾਬ ਨੂੰ [ਨਸ਼ਾ ਮੁਕਤ ਰਾਜ](http://www.punjabspectrum.tv/politics/we-will-make-punjab-a-drug-free-state-sukhbir-badal/#sthash.QRB28Tfz.dpbs) ਬਣਾਇਆ ਜਾਵੇਗਾ। ਦੂਜੇ ਪਾਸੇ ਨਸ਼ੇ ਆਮ ਵਿਕ ਰਹੇ ਹਨ ਤੇ [ਪਨੀਰ ਅਤੇ ਦਹੀਂ ਹੋਰ ਮਹਿੰਗੇ](http://ibnlive.in.com/news/milkfed-punjab-hikes-curd-cheese-prices/475732-3.html) ਹੋਏ। [ਚੰਗੇ ਦਿਨ](http://www.aljazeera.com/indepth/features/2014/04/hurricane-lashing-india-punjab-201442982348612953.html) ਵਾਕਈ ਆਉਣਗੇ।

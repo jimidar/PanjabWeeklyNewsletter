@@ -1,2 +1,6 @@
+- []()
 - [ਹਾਰਡ ਕੌਰ](http://www.socialsamosa.com/2014/05/hard-kaur/?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+SocialSamosa+(Social+Samosa)) ਦੇ ਲਈ ਸ਼ੋਸਲ ਮੀਡੀਆ ਦੀ ਅਹਿਮੀਅਤ ਤੇ ਇਸਦੀ ਵਰਤੋਂ।
-- ਹਨੀ ਸਿੰਘ ਦੀ ਸ਼ਖਸ਼ੀਅਤ ਦਾ [ਇੱਕ ਹੋਰ ਰੂਪ](http://www.dnaindia.com/entertainment/report-honey-singh-launches-fight-club-1991441)।
+- ਹਨੀ ਸਿੰਘ ਦੀ ਸ਼ਖਸ਼ੀਅਤ ਦੇ [ਸੰਗੀਤਕ ਪਹਿਲੂਆਂ](http://www.indiantelevision.com/television/tv-channels/gecs/india’s-raw-star’-yo-yo-honey-singh-begins-the-hunt-for-the-next-music-sensation-140602) ਤੋਂ ਵੱਖਰੇ ਕੁੱਝ [ਹੋਰ ਰੂਪ](http://www.dnaindia.com/entertainment/report-honey-singh-launches-fight-club-1991441)। ਇੰਟਰਨੈੱਟ ਉੱਤੇ [ਹਨੀ ਸਿੰਘ ਦੀ ਮੌਤ](http://www.theepochtimes.com/n3/710507-honey-singh-dead-in-car-accident-no-rapper-yoyo-slammed-by-death-hoax-is-still-alive/) ਦੀਆਂ ਆਫਵਾਹਾਂ ਨੇ ਪਾਇਆ ਪ੍ਰਸ਼ੰਸ਼ਕਾਂ ਨੂੰ ਵਖਤ।
+- ਜਪਜੀਤ ਕੌਰ ਆਪਣੀ [ਪਹਿਲੀ ਸੰਗੀਤਕ ਐਲਬਮ](http://timesofindia.indiatimes.com/entertainment/punjabi/movies/news-interviews/Japjit-ready-to-enthrall-with-Jalte-Hain-Dil/articleshow/35713307.cms) ਨਾਲ ਸਰੋਤਿਆਂ ਦੇ ਰੂ-ਬ-ਰੂ ਹੋਣ ਲਈ ਤਿਆਰ।
+
+- ਪਹਿਲਾਂ ਕੋਈ ਵਿਵਾਦਤ ਗਾਣਾ ਗਾਉ ਤੇ ਫਿਰ ਮੁਆਫੀ ਮੰਗ ਲਉ। [ਰਣਜੀਤ ਬਾਵਾ ਨੇ ਨੈਰੋ ਸਲਵਾਰ ਲਈ](http://www.sikhsiyasat.net/2014/05/29/punjabi-singer-ranjit-bawa-apologises-after-social-media-outrage-over-vulgar-singing/) ਮੰਗੀ ਮੁਆਫੀ। ਕੀ ਇਹ ਸ਼ੁਹਰਤ ਪਾਉਣ ਦਾ ਇੱਕ ਸੌਖਾ ਤਰੀਕਾ ਤਾਂ ਨਹੀਂ ਬਣਦਾ ਜਾ ਰਿਹਾ?

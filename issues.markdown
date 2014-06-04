@@ -10,9 +10,9 @@
 
 - ਸ਼੍ਰੋਮਣੀ ਗੁਰੂਦੁਆਰਾ ਪ੍ਰਬੰਧਕ ਕਮੇਟੀ ਨੂੰ ਪੰਜਾਬੀ ਬੋਲੀ ਦਾ ਆਇਆ ਚੇਤਾ। [ਪੰਜਾਬੀ](http://www.sikh24.com/2014/05/sgpc-ties-up-with-private-firm-to-uphold-punjabi-among-youth/#.U41qhRYnK1A) ਦੀ ਬਿਹਤਰੀ ਤੇ ਪਸਾਰ ਲਈ ਕੀਤਾ ਇੱਕ ਨਿੱਜੀ ਕੰਪਨੀ ਨਾਲ ਸਮਝੌਤਾ। ਇੱਕ ਹੋਰ ਖਬਰ ਅਨੁਸਾਰ ਜਥੇਦਾਰ ਮੱਕੜ ਨੇ ਪੰਜਾਬੀ ਯੂਨੀਵਰਸਿਟੀ ਵੱਲੋਂ [ਪੰਜਾਬੀ ਭਾਸ਼ਾ ਨੂੰ ਖੁੱਡੇ ਲਾਈਨ ਲਾਉਣ](http://www.hindustantimes.com/punjab/chandigarh/makkar-writes-to-pu-chancellor-on-bias-to-punjabi/article1-1224228.aspx) ਦੇ ਮਸਲੇ ਤੇ ਲਿਖੀ ਚਿੱਠੀ।
 
-- ਮਈ 29 ਤੋਂ ਜੂਨ 7 ਤੱਕ [ਭੰਗੜਾ ਫੈਸਟੀਵਲ](http://www.asianpacificpost.com/article/6196-city-bhangra-festival-starts-may-29.html) ਵਧਾਏਗਾ ਵੈਨਕੂਵਰ ਦੀਆਂ ਰੌਣਕਾਂ। [ਪੱਛਮੀ ਪੰਜਾਬ ਦੇ ਸੱਭਿਆਚਾਰ](http://www.vancouverdesi.com/news/city-of-bhangra-fest-will-focus-on-pakistani-side-of-punjab-culture/755098/) ਤੇ ਵੀ ਕੀਤਾ ਜਾਵੇਗਾ ਗੌਰ।
+- ਮਈ 29 ਤੋਂ ਜੂਨ 7 ਤੱਕ [ਭੰਗੜਾ ਫੈਸਟੀਵਲ](http://www.asianpacificpost.com/article/6196-city-bhangra-festival-starts-may-29.html) ਵਧਾਏਗਾ ਵੈਨਕੂਵਰ ਦੀਆਂ ਰੌਣਕਾਂ। [ਪੱਛਮੀ ਪੰਜਾਬ ਦੇ ਸੱਭਿਆਚਾਰ](http://www.vancouverdesi.com/news/city-of-bhangra-fest-will-focus-on-pakistani-side-of-punjab-culture/755098/) ਤੇ ਵੀ ਕੀਤਾ ਜਾਵੇਗਾ ਗੌਰ। ਅਮਰੀਕਾ ਦੇ ਯੂਬਾ ਸਿਟੀ ਵਿੱਚ ਵੀ [20-ਵਾਂ ਪੰਜਾਬੀ ਮੇਲਾ](http://newseastwest.com/punjabi-mela-of-yuba-city-draws-thousands/) ਹਜਾਰਾਂ ਦਰਸ਼ਕਾਂ ਦਾ ਦਿਲ ਲੁੱਟ ਕੇ ਹੋਇਆ ਸਮਾਪਤ।
 
-- ਪੰਜਾਬ ਸਰਕਾਰ ਵੱਲ਼ੋਂ ਕਿਸਾਨਾਂ ਨੂੰ ਕੀਤੀ ਗਈ [ਕਣਕ ਦੀ ਕੀਮਤ ਦੀ ਰਿਕਾਰਡ ਅਦਾਇਗੀ](http://www.ianslive.in/index.php?param=news/Punjab_pays_record_Rs15473_crore_to_farmers_for_wheat-425183/BUSINESS/5)।
+- ਪੰਜਾਬ ਸਰਕਾਰ ਦਾ ਦਾਅਵਾ, ਕਿਸਾਨਾਂ ਨੂੰ ਕੀਤੀ ਗਈ [ਕਣਕ ਦੀ ਕੀਮਤ ਦੀ ਰਿਕਾਰਡ ਅਦਾਇਗੀ](http://www.ianslive.in/index.php?param=news/Punjab_pays_record_Rs15473_crore_to_farmers_for_wheat-425183/BUSINESS/5)।
 
 - ਪਾਕਿਸਤਾਨੀ ਪੰਜਾਬ ਅਸੈਂਬਲੀ ਵਿੱਚ ਗੁਰੂ ਨਾਨਕ ਜੀ ਦੇ [ਜਨਮ ਦਿਹਾੜੇ ਤੇ ਜਨਤਕ ਛੁੱਟੀ](http://tribune.com.pk/story/714317/punjab-assembly-approves-resolution-to-make-guru-nanaks-birthday-a-public-holiday/) ਕਰਨ ਦਾ ਮਤਾ ਪਾਸ।
 
@@ -25,4 +25,6 @@
 
 - [ਵਿਸ਼ਵ ਸਿੱਖ ਸੰਸਥਾ](http://worldsikh.ca) ਦੇ ਉਪਰਾਲੇ ਨਾਲ ਕੈਨੇਡੀਅਨ ਕੰਪਨੀ ਨੇ ਬਣਾਈ [ਕ੍ਰਿਪਾਨ ਪਾ ਕੇ ਕੰਮ ਕਰਨ ਦੀ ਪ੍ਰਵਾਨਗੀ](http://timesofindia.indiatimes.com/India/Canadian-firm-makes-policy-for-accommodating-kirpans-for-baptized-Sikhs/articleshow/35801835.cms) ਦੀ ਨੀਤੀ।
 
-- ਸਰਕਾਰ ਵੱਲੋਂ ਪੰਜਾਬ ਵਿੱਚ ਧੜੱਲੇ ਨਾਲ ਵਿਕਦੇ ਨਸ਼ਿਆਂ ਨੂੰ ਨੱਥ ਪਾਉਣ ਲਈ [ਨਸ਼ਾ ਰੋਕੂ ਬਿਊਰੋ](http://www.dnaindia.com/india/report-punjab-to-set-up-drug-control-bureau-1992650) ਬਣਾਇਆ ਜਾਵੇਗਾ ਅਤੇ ਸੁਖਬੀਰ ਬਾਦਲ ਨੇ ਕਿਹਾ ਕਿ ਪੰਜਾਬ ਨੂੰ [ਨਸ਼ਾ ਮੁਕਤ ਰਾਜ](http://www.punjabspectrum.tv/politics/we-will-make-punjab-a-drug-free-state-sukhbir-badal/#sthash.QRB28Tfz.dpbs) ਬਣਾਇਆ ਜਾਵੇਗਾ। ਦੂਜੇ ਪਾਸੇ ਨਸ਼ੇ ਆਮ ਵਿਕ ਰਹੇ ਹਨ ਤੇ [ਪਨੀਰ ਅਤੇ ਦਹੀਂ ਹੋਰ ਮਹਿੰਗੇ](http://ibnlive.in.com/news/milkfed-punjab-hikes-curd-cheese-prices/475732-3.html) ਹੋਏ। [ਚੰਗੇ ਦਿਨ](http://www.aljazeera.com/indepth/features/2014/04/hurricane-lashing-india-punjab-201442982348612953.html) ਵਾਕਈ ਆਉਣਗੇ।
+- ਸਰਕਾਰ ਵੱਲੋਂ ਪੰਜਾਬ ਵਿੱਚ ਧੜੱਲੇ ਨਾਲ ਵਿਕਦੇ ਨਸ਼ਿਆਂ ਨੂੰ ਨੱਥ ਪਾਉਣ ਲਈ [ਨਸ਼ਾ ਰੋਕੂ ਬਿਊਰੋ](http://www.dnaindia.com/india/report-punjab-to-set-up-drug-control-bureau-1992650) ਬਣਾਇਆ ਜਾਵੇਗਾ ਅਤੇ ਸੁਖਬੀਰ ਬਾਦਲ ਨੇ ਕਿਹਾ ਕਿ ਪੰਜਾਬ ਨੂੰ [ਨਸ਼ਾ ਮੁਕਤ ਰਾਜ](http://www.punjabspectrum.tv/politics/we-will-make-punjab-a-drug-free-state-sukhbir-badal/#sthash.QRB28Tfz.dpbs) ਬਣਾਇਆ ਜਾਵੇਗਾ। ਦੂਜੇ ਪਾਸੇ ਨਸ਼ੇ ਆਮ ਵਿਕ ਰਹੇ ਹਨ ਤੇ [ਪਨੀਰ ਅਤੇ ਦਹੀਂ ਹੋਰ ਮਹਿੰਗੇ](http://ibnlive.in.com/news/milkfed-punjab-hikes-curd-cheese-prices/475732-3.html) ਹੋਏ। ['ਚੰਗੇ ਦਿਨ'](http://www.aljazeera.com/indepth/features/2014/04/hurricane-lashing-india-punjab-201442982348612953.html) ਵਾਕਈ ਆਉਣਗੇ।
+
+- ਨਹੀਂ ਰੁਕ ਰਿਹਾ ਫਿਲੀਪੀਨਸ ਵਿੱਚ [ਪੰਜਾਬੀਆਂ ਦੇ ਕਤਲਾਂ ਦਾ ਸਿਲਸਿਲਾ](http://thelinkpaper.ca/?p=38081)।

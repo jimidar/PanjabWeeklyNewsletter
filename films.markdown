@@ -1,7 +1,5 @@
-- PIFF - ਪੰਜਾਬੀ ਅੰਤਰਰਾਸ਼ਟਰੀ ਫਿਲਮ ਸਮਾਰੋਹ ਅਤੇ IFFSA - ਦੱਖਣੀ ਏਸ਼ੀਆਈ ਅੰਤਰਰਾਸ਼ਟਰੀ [ਫਿਲਮ ਸਮਾਰੋਹ](http://www.mississauga.com/whatson-story/4532015-piff-iffsa-conclude-successful-festival/) ਸਫਲਤਾਪੂਰਵਕ ਸਮਾਪਤ।
+- []()
 
-- [ਮੁੰਡਿਆਂ ਤੋਂ ਬੱਚ ਕੇ ਰਹੀਂ](http://www.punjabiportal.com/forum/mundeyan-toh-bach-ke-rahin-punjabi-film-t13378.html) ਨਵੀਂ ਆਉਣ ਵਾਲੀ ਪੰਜਾਬੀ ਫਿਲਮ 30 ਮਈ ਨੂੰ ਬਣੇਗੀ ਤੁਹਾਡੇ ਨਜਦੀਕੀ ਸਿਨੇਮਾ ਘਰ ਦਾ ਸ਼ਿੰਗਾਰ।
+- ਸਰੀ, ਕੈਨੇਡਾ ਦੇ ਸਟਰਾਅ-ਬੇਰੀ ਹਿੱਲਜ਼ ਸਿਨੇਮਾ ਘਰ ਵਿੱਚ [ਪੰਜਾਬੀ ਤੇ ਹਿੰਦੀ ਫਿਲਮਾਂ ਦੀ ਪ੍ਰਤੀ ਸਕਰੀਨ ਆਮਦਨ](http://www.voiceonline.com/29227/) ਕਈ ਵਾਰੀ ਹਾਲੀਵੁੱਡ ਫਿਲਮਾਂ ਤੋਂ ਵੀ ਜਿਆਦਾ ਹੁੰਦੀ ਹੈ।
 
-- [ਫੁਕਰੇ 2 ](http://www.bollywoodlife.com/news/mrigdeep-singh-lamba-we-are-working-on-the-script-for-fukrey-2/) ਲਈ ਕਹਾਣੀ ਉੱਤੇ ਕੰਮ ਜਾਰੀ।
-
-- ਅਰਚਨਾ ਪੂਰਨ ਸਿੰਘ ਲਵੇਗੀ ਜੱਜ [ਫ਼ਰਹਾ ਖਾਨ](http://timesofindia.indiatimes.com/entertainment/hindi/tv/news-interviews/Archana-Puran-Singh-to-replace-Farah-Khan/articleshow/35439857.cms) ਦੀ ਥਾਂ।
+- [ਗੁਰੂ ਨਾਨਕ ਦੇਵ ਜੀ](http://timesofindia.indiatimes.com/city/chandigarh/Bollywood-comes-out-with-Guru-Nanaks-biopic/articleshow/17343866.cms) ਤੇ ਬਣੀ ਫਿਲਮ [ਕਾਨਜ਼ ਫਿਲਮ ਸਮਾਰੋਹ ਤੱਕ ਪਹੁੰਚੀ](http://sikhchic.com/film_stage/a_film_on_guru_nanak_goes_to_cannes_nanak_shah_fakir)।

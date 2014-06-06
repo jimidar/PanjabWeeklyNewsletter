@@ -1,4 +1,8 @@
 
+[]()
+
+- [ਸਾਕਾ ਨੀਲਾ ਤਾਰਾ](http://www.guernicamag.com/daily/mallika-kaur-ten-thousand-pairs-of-shoes/) ਦੇ ਤੀਹ ਸਾਲ ਪੂਰੇ ਹੋਣ ਦੇ ਮੌਕੇ ਤੇ ਅਕਾਲ ਤਖਤ ਉੱਤੇ ਹੋਈ [ਲੜਾਈ](http://zeenews.india.com/news/nation/sikh-groups-clash-inside-golden-temple-complex-on-bluestar-anniv-6-injured_937538.html) ਨੇ ਕਈ ਸਵਾਲ ਖੜ੍ਹੇ ਕੀਤੇ । ਸਿੱਖ ਕੌਮ ਅੱਜ ਤੀਹ ਸਾਲ ਬਾਅਦ ਵੀ [ਇਸ ਸਾਕੇ ਦੇ ਕਾਰਨ](http://www.sikh-history.com/sikhhist/archivedf/feature-oct2000.html) ਲੱਭਣ ਵਿੱਚ ਰਹੀ ਹੈ ਨਾਕਾਮ। [ਵਿਦਵਾਨਾਂ](http://www.newslaundry.com/2014/05/31/bluestar-baby-boomers/) ਅਤੇ ਖੋਜੀਆਂ](http://www.caravanmagazine.in/reportage/shattered-dome?page=0,0) ਦਾ ਇਸ ਘਟਨਾਕ੍ਰਮ ਪ੍ਰਤੀ ਵੱਖੋ ਵੱਖਰਾ ਦ੍ਰਿਸ਼ਟੀਕੋਣ ਅਸਲੀਅਤ ਨੂੰ ਸਾਫ ਕਰਨ ਦੀ ਬਜਾਏ ਹੋਰ ਧੁੰਦਲਾ ਕਰ ਜਾਂਦਾ ਹੈ।
+
 - ਪੰਜਾਬ ਦੀ ਕਿਸਾਨ ਹਿਤੈਸ਼ੀ ਸਰਕਾਰ ਵੱਲੋਂ [ਮੌਨਸੈਂਟੋ ਅਤੇ ਹੋਰ ਕੰਪਨੀਆਂ](http://www.thehindu.com/news/national/other-states/punjab-shortlists-monsanto-two-others-to-provide-maize-seeds/article6050754.ece) ਨੂੰ ਮੱਕੀ ਦੇ [ਜਿਆਦਾ ਉਪਜ ਵਾਲੇ ਬੀਜ](http://articles.mercola.com/sites/articles/archive/2013/04/30/monsanto-gmo-corn.aspx?e_cid=20130430_DNL_art_1&utm_source=dnl&utm_medium=email&utm_content=art1&utm_campaign=20130430) ਲਈ ਨਾਮਜਦ ਕਰਨਾ ਕਿੰਨਾ ਕੁ ਸਾਰਥਕ ਹੋਵੇਗਾ ਇਹ ਤਾਂ ਵਕਤ ਹੀ ਦੱਸੇਗਾ ਪਰ ਮੌਨਸੈਂਟੋ ਦੇ [ਕਿਸਾਨ ਹਿਤੈਸ਼ੀ](http://www.huffingtonpost.com/2010/01/12/monsantos-gmo-corn-linked_n_420365.html) ਹੋਣ ਤੇ ਸ਼ੰਕੇ ਨਾਲ ਕਿਸਾਨ ਦੁਚਿੱਤੀ ਵਿੱਚ। [ਕੰਪਨੀ](http://healthimpactnews.com/tag/monsanto/) ਦੀਆਂ ਕਈ ਦੇਸ਼ਾਂ ਵਿੱਚ [ਕਿਸਾਨਾਂ ਪ੍ਰਤੀ ਨੀਤੀਆਂ](http://inhabitat.com/monsanto-has-sued-hundreds-of-small-farmers-heads-to-the-supreme-court/) ਕੀ ਪੰਜਾਬ ਵਿੱਚ ਵੀ ਦੁਹਰਾਈਆਂ ਤਾਂ ਨਹੀਂ ਜਾਣਗੀਆਂ।
 
 - ਅਕਾਲੀ ਭਾਜਪਾ ਸਰਕਾਰ ਵੱਲੋਂ ਲੋਕਾਂ ਨੂੰ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਾਉਣ ਵਿੱਚ [ਵੱਡੀ ਵਿੱਤੀ ਰਾਹਤ](http://www.business-standard.com/article/economy-policy/punjab-waives-stamp-duty-on-property-transfer-to-kin-114052601270_1.html)। ਖੂਨ ਦੇ ਰਿਸ਼ਤੇ ਵਿੱਚ ਜਮੀਨ ਦੀ ਰਜਿਸਟਰੀ ਕਰਵਾਉਣ ਤੇ [ਨਹੀਂ ਲੱਗੇਗੀ ਸਟੈਂਪ ਡਿਊਟੀ](http://thelinkpaper.ca/?p=37783)। [ਜਾਇਦਾਦ ਕਰ](http://www.hindustantimes.com/punjab/chandigarh/punjab-local-bodies-dept-to-get-feedback-on-property-tax/article1-1223096.aspx) ਤੇ ਵੀ ਲਈ ਜਾਏਗੀ ਲੋਕਾਂ ਦੀ ਰਾਇ।
@@ -9,7 +13,7 @@
 
 - ਸ਼੍ਰੋਮਣੀ ਗੁਰੂਦੁਆਰਾ ਪ੍ਰਬੰਧਕ ਕਮੇਟੀ ਨੂੰ ਪੰਜਾਬੀ ਬੋਲੀ ਦਾ ਆਇਆ ਚੇਤਾ। [ਪੰਜਾਬੀ](http://www.sikh24.com/2014/05/sgpc-ties-up-with-private-firm-to-uphold-punjabi-among-youth/#.U41qhRYnK1A) ਦੀ ਬਿਹਤਰੀ ਤੇ ਪਸਾਰ ਲਈ ਕੀਤਾ ਇੱਕ ਨਿੱਜੀ ਕੰਪਨੀ ਨਾਲ ਸਮਝੌਤਾ। ਇੱਕ ਹੋਰ ਖਬਰ ਅਨੁਸਾਰ ਜਥੇਦਾਰ ਮੱਕੜ ਨੇ ਪੰਜਾਬੀ ਯੂਨੀਵਰਸਿਟੀ ਵੱਲੋਂ [ਪੰਜਾਬੀ ਭਾਸ਼ਾ ਨੂੰ ਖੁੱਡੇ ਲਾਈਨ ਲਾਉਣ](http://www.hindustantimes.com/punjab/chandigarh/makkar-writes-to-pu-chancellor-on-bias-to-punjabi/article1-1224228.aspx) ਦੇ ਮਸਲੇ ਤੇ ਲਿਖੀ ਚਿੱਠੀ।
 
-- ਮਈ 29 ਤੋਂ ਜੂਨ 7 ਤੱਕ [ਭੰਗੜਾ ਫੈਸਟੀਵਲ](http://www.asianpacificpost.com/article/6196-city-bhangra-festival-starts-may-29.html) ਵਧਾਏਗਾ ਵੈਨਕੂਵਰ ਦੀਆਂ ਰੌਣਕਾਂ। [ਪੱਛਮੀ ਪੰਜਾਬ ਦੇ ਸੱਭਿਆਚਾਰ](http://www.vancouverdesi.com/news/city-of-bhangra-fest-will-focus-on-pakistani-side-of-punjab-culture/755098/) ਤੇ ਵੀ ਕੀਤਾ ਜਾਵੇਗਾ ਗੌਰ। ਅਮਰੀਕਾ ਦੇ ਯੂਬਾ ਸਿਟੀ ਵਿੱਚ ਵੀ [20-ਵਾਂ ਪੰਜਾਬੀ ਮੇਲਾ](http://newseastwest.com/punjabi-mela-of-yuba-city-draws-thousands/) ਹਜਾਰਾਂ ਦਰਸ਼ਕਾਂ ਦਾ ਦਿਲ ਲੁੱਟ ਕੇ ਹੋਇਆ ਸਮਾਪਤ।
+- ਮਈ 29 ਤੋਂ ਜੂਨ 7 ਤੱਕ [ਭੰਗੜਾ ਫੈਸਟੀਵਲ](http://www.asianpacificpost.com/article/6196-city-bhangra-festival-starts-may-29.html) ਵਧਾਏਗਾ ਵੈਨਕੂਵਰ ਦੀਆਂ ਰੌਣਕਾਂ। [ਪੱਛਮੀ ਪੰਜਾਬ ਦੇ ਸੱਭਿਆਚਾਰ](http://www.vancouverdesi.com/news/city-of-bhangra-fest-will-focus-on-pakistani-side-of-punjab-culture/755098/) ਤੇ ਵੀ ਕੀਤਾ ਜਾਵੇਗਾ ਗੌਰ। ਅਮਰੀਕਾ ਦੇ ਯੂਬਾ ਸਿਟੀ ਵਿੱਚ ਵੀ [20-ਵਾਂ ਪੰਜਾਬੀ ਮੇਲਾ](http://newseastwest.com/punjabi-mela-of-yuba-city-draws-thousands/) ਹਜਾਰਾਂ ਦਰਸ਼ਕਾਂ ਦਾ ਦਿਲ ਲੁੱਟ ਕੇ ਹੋਇਆ ਸਮਾਪਤ। 
 
 - ਪਾਕਿਸਤਾਨੀ ਪੰਜਾਬ ਅਸੈਂਬਲੀ ਵਿੱਚ ਗੁਰੂ ਨਾਨਕ ਜੀ ਦੇ [ਜਨਮ ਦਿਹਾੜੇ ਤੇ ਜਨਤਕ ਛੁੱਟੀ](http://tribune.com.pk/story/714317/punjab-assembly-approves-resolution-to-make-guru-nanaks-birthday-a-public-holiday/) ਕਰਨ ਦਾ ਮਤਾ ਪਾਸ।
 
@@ -30,3 +34,9 @@
 - ਨਹੀਂ ਰੁਕ ਰਿਹਾ ਫਿਲੀਪੀਨਸ ਵਿੱਚ [ਪੰਜਾਬੀਆਂ ਦੇ ਕਤਲਾਂ ਦਾ ਸਿਲਸਿਲਾ](http://thelinkpaper.ca/?p=38081)।
 
 - 1976 ਵਿੱਚ ਹੋਂਦ ਵਿੱਚ ਆਇਆ ਪੰਜਾਬ ਇਨਫੋਟੈਕ ਪਿਛਲੇ [ਸੱਤ ਸਾਲ ਤੋਂ ਇੱਕ ਵੀ ਪ੍ਰੋਜੈਕਟ ਸਿਰੇ ਚਾੜ੍ਹਨ ਵਿੱਚ ਰਿਹਾ ਨਾਕਾਮ](http://www.hindustantimes.com/punjab/chandigarh/7-years-on-punjab-infotech-fails-to-execute-even-a-single-project/article1-1225818.aspx)।
+
+- ਗੂਗਲ ਵੱਲੋਂ [ਗੂਗਲ ਟਰਾਂਸਲੇਟ](http://anparr.blogspot.in/2013/12/start-of-punjabi-on-google-translate.html) ਦੀ ਐਂਡਰੌਇਡ ਫੋਨਾਂ ਤੇ ਆਪਣੀ ਐਪਲੀਕੇਸ਼ਨ ਵਿੱਚ ਪੰਜਾਬੀ ਅਤੇ ਸੱਤ ਹੋਰ ਭਾਰਤੀ ਭਾਸ਼ਾਵਾਂ ਲਈ [ਆਵਾਜ ਦੀ ਸ਼ਨਾਖਤ](http://tech.firstpost.com/news-analysis/google-translate-gets-voice-recognition-for-hindi-and-seven-other-indian-languages-225225.html) ਦਾ ਸਮਰਥਨ ਸ਼ੁਰੂ ਕੀਤਾ।
+
+- ਅਮਰੀਕਾ ਦੀ ਉੱਘੀ ਸਖਸ਼ੀਅਤ ਸੰਤ ਸਿੰਘ ਛਤਵਾਲ ਦੇ [ਕੇਸ ਦੀ ਸੁਣਵਾਈ](http://economictimes.indiatimes.com/news/nri/nris-in-news/hotelier-sant-singh-chatwals-sentencing-in-illegal-donations-case-moved-to-october/articleshow/36140109.cms) ਅਕਤੂਬਰ ਤੱਕ ਟਲ਼ੀ। 25 ਸਾਲ ਦੀ ਬਜਾਏ ਹੋ ਸਕਦੀ ਹੈ 5 ਕੁ ਸਾਲ ਦੀ ਸਜਾ ਤੇ ਕੁੱਝ ਜੁਰਮਾਨਾ।
+
+- ਜਨਰਲ ਜੋਗਿੰਦਰ ਜਸਵੰਤ ਸਿੰਘ ਜੋ ਕਿ ਜਨਰਲ ਜੇ ਜੇ ਸਿੰਘ ਦੇ ਨਾਂ ਨਾਲ ਜਿਆਦਾ ਜਾਣੇ ਜਾਂਦੇ ਹਨ ਦੇ ਸਪੁੱਤਰ ਦੀ ਫਰਾਂਸ ਵਿੱਚ [ਪਹਿਲੇ ਸਿੱਖ ਮਿਊਂਸੀਪਲ ਕਮਿਸ਼ਨਰ](http://www.business-standard.com/article/pti-stories/gen-jj-singh-s-son-ist-sikh-to-be-municipal-comm-in-france-114060501318_1.html) ਵਜੋਂ ਨਿਯੁਕਤੀ।

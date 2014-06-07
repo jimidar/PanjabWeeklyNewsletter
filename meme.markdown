@@ -10,14 +10,4 @@
 
 - ਪੰਜਾਬੀ ਮਾਵਾਂ ਨੂੰ ਪਸੰਦ ਨਹੀਂ [ਫਿਜੂਲ ਖਰਚੀ](https://www.facebook.com/photo.php?v=483087378504229&set=vb.322575304555438&type=2&theater)।
 
-- [ਓਡੀ](https://www.facebook.com/photo.php?v=264787830356913&set=vb.227239800778383&type=2&theater) ਗੱਡੀ ਲੈਣੀ ਆ।
-
-# This is H1
-## This is h2
-### This is h3
-
-1. number 1
-2. number 2
-
-
-This news if from [bbc.com](http://google.com)
+- [ਔਡੀ](https://www.facebook.com/photo.php?v=264787830356913&set=vb.227239800778383&type=2&theater) ਗੱਡੀ ਲੈਣੀ ਆ।

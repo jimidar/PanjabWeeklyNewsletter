@@ -1,1 +1,1 @@
-Your favorite Panjab Weekly will now be in Punjabi and English languages with alternative edition each week.
+ਇਸ ਹਫਤੇ ਦਾ ਐਡੀਸ਼ਨ ਅੱ

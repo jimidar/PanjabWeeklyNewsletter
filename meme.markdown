@@ -1,11 +1,13 @@
-- ਭਗਵੰਤ ਮਾਨ ਦੀ ਪੰਜਾਬੀ ਗਾਇਕਾਂ ਉਤੇ ਚੋਟ - [ਬਾਦਲਾਂ ਦੀ ਘੁਰਕੀ](https://www.youtube.com/watch?v=t793_AP6am4)
+- [ਮਿਰਜ਼ਾ-ਸਾਹਿਬਾਂ 2014](https://www.facebook.com/photo.php?v=482725715207062&fref=nf)
 
-- [michael kors ਜਾਂ ਮਾਈਕਲ ਕੌਰ](http://www.punjabivines.com/3544)
+- ਜੇਕਰ ਧਿਆਨ ਨਾ ਦਿੱਤਾ ਤਾਂ ਕਿੱਦਾਂ ਪਤਾ ਲੱਗੂ ਕਿ [ਕਿਤਨੇ ਆਦਮੀ ਥੇ](https://www.facebook.com/photo.php?v=484546951691605&set=vb.322575304555438&type=2&theater)।
 
-- ਹਨੀ ਸਿੰਘ ਦੇ ਗਾਣੇ ਦੀ [ਅਸਲ ਸ਼ੂਟਿੰਗ ਕਿੱਦਾਂ ਦੀ ਹੋਉ?](https://vine.co/v/MKqnijZajzn) 
+- ਇਸ ਤਰ੍ਹਾਂ ਵੀ ਕੀਤੀ ਜਾ ਸਕਦੀ ਹੈ [ਝਾੜ-ਝੰਬ](https://www.facebook.com/photo.php?v=484128955066738&set=vb.322575304555438&type=2&theater)।
 
-- [ਗੁੱਸਾ ਨੀ ਕਰੀਦਾ ਬਾਈ](https://www.youtube.com/watch?v=tIcKfz3TKfM)
+- ਦੇਸੀ ਬੰਦਿਆਂ ਦੇ ਆਮ ਤੌਰ ਤੇ [ਬਹੁਤੇ ਸਵਾਲ](https://www.facebook.com/photo.php?v=483466711799629&set=vb.322575304555438&type=2&theater) ਇਹੀ ਹੁੰਦੇ ਹਨ।
 
-- ਪੰਜਾਬੀ ਵਿਆਹਾਂ ਤੇ [ਪਾਣੀ ਦਾ ਪੈਕ ਖੋਲਣ ਦਾ ਵਧੀਆ ਤਰੀਕਾ](https://www.youtube.com/watch?v=uZt-1bjhU7Q)
+- ਪੰਜਾਬੀ ਮਾਵਾਂ ਨੂੰ ਪਸੰਦ ਨਹੀਂ [ਫਿਜੂਲ ਖਰਚੀ](https://www.facebook.com/photo.php?v=483087378504229&set=vb.322575304555438&type=2&theater)।
 
-- [ਗੋਲੀ ਵਾਲਾ ਬੱਤਾ](https://www.youtube.com/watch?v=k8lwoPb6PFc)
+- [ਔਡੀ](https://www.facebook.com/photo.php?v=264787830356913&set=vb.227239800778383&type=2&theater) ਗੱਡੀ ਲੈਣੀ ਆ।
+
+- ਟਵਿੱਟਰ ਉੱਤੇ [ਹਨੀ ਸਿੰਘ](http://zeenews.india.com/entertainment/celebrity/honey-singh-jokes-trend-on-twitter-after-xpose-release_155167.html) ਉੱਪਰ ਮਖੌਲਾਂ ਦੀ ਭਰਮਾਰ।

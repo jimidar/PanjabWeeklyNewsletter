@@ -1,15 +1,12 @@
-- ਮਹਾਰਾਜਾ ਰਣਜੀਤ ਸਿੰਘ ਦੇ ਰਾਜ ਹੇਠ [ਲਾਹੌਰ ਦੇ 87 ਫੀਸਦੀ ਤੇ ਪੰਜਾਬ ਦੇ 78 ਫੀਸਦੀ ਲੋਕ ਲਿਖ ਤੇ ਪੜ੍ਹ ਸਕਦੇ ਸਨ।](https://www.youtube.com/watch?v=yWxDhT3ybUs)
- 
-- ਯੂਰੋਪੀਅਨ ਪ੍ਰਮਾਣੂ ਖੋਜ ਸੰਸਥਾ CERN ਵਲੋਂ ਪੰਜਾਬ ਯੂਨੀਵਰਸਿਟੀ ਚੰਡੀਗੜ੍ਹ ਦੇ [ਯੋਗਦਾਨ](http://www.hindustantimes.com/punjab/chandigarh/cern-ackowledges-varsity-s-contribution-to-higgs-project/article1-1221083.aspx) ਦੀ ਸ਼ਲਾਘਾ।
+- ਮੀਤਾ ਕੌਰ ਦੀ [ਮੈਡੀਕਲ ਹਿਸਟਰੀ](http://sikhlovestories.com/2014/05/27/a-medical-history-by-meeta-kaur/)।
 
-- ਕੈਲੇਫੋਰਨੀਆ ਦੇ ਮੈਨਟਿਕਾ ਸ਼ਹਿਰ ਦੇ ਯੋਜਨਾਬੰਦੀ ਕਮਿਸ਼ਨ ਵਿੱਚ ਪਹਿਲੇ [ਪੰਜਾਬੀ ਭਾਰਤੀ](http://www.mantecabulletin.com/section/174/article/106270/) ਦੀ ਨਿਯੁਕਤੀ।
+- ਇੱਕ ਲੱਤ ਗਵਾ ਕੇ ਵੀ [ਹੌਂਸਲਾ ਨਾ ਹਾਰਨ ਵਾਲੀ](http://www.dailymail.co.uk/femail/article-2643816/Inspirational-one-legged-dancer-fractured-knee-motorbike-accident-ended-losing-limb-harrowing-hospital-blunders-star-India.html) ਸ਼ੁੱਭਪ੍ਰੀਤ ਕੌਰ ਨੂੰ ਮਿਲਿਆ [ਉਸਦਾ ਜੀਵਨ ਸਾਥੀ](http://www.jagbani.com/news/article_329607/)।
 
-- ਅਮਰੀਕੀ ਸਿੱਖ ਸੰਸਥਾ ਵੱਲੋਂ ਪੰਜਾਬ ਵਿਚਲੇ ਜਰੂਰਤਮੰਦ ਵਿਦਿਆਰਥੀਆਂ ਲਈ [$330K ਜੁਟਾਏ](http://zeenews.india.com/news/world/sikh-americans-raise-usd-330k-for-needy-students-in-punjab_933743.html) ਗਏ।
+- [ਮੈਂ ਅਧਿਆਪਕਾ ਕਿਉਂ ਬਣੀ](http://www.theguardian.com/teacher-network/teacher-blog/2014/jun/01/why-became-teacher-minority-ethnic-children-school) - ਅਵਨਿੰਦਰ ਕੌਰ।
 
-- ਪੰਜਾਬ ਸਰਕਾਰ ਵੱਲੋਂ ਦਸਵੀਂ ਦੀ ਪ੍ਰੀਖਿਆ ਵਿੱਚ ਪਹਿਲੇ ਤਿੰਨ ਸਥਾਨਾਂ ਤੇ ਆਉਣ ਵਾਲੇ ਵਿਦਿਆਰਥੀਆਂ ਨੂੰ [2.25 ਲੱਖ ਰੁਪਏ ਇਨਾਮ](http://timesofindia.indiatimes.com/city/chandigarh/Punjab-government-awards-Rs-2-25-lakh-cash-to-class-10th-top-three-students/articleshow/35521656.cms) ਦੇਣ ਦਾ ਫੈਸਲਾ।
+- ਐਲੀਮੈਂਟਰੀ ਸਕੂਲ ਦੇ [ਬੱਚਿਆਂ ਦੀ ਆਪਸੀ ਦੋਸਤੀ ਨੂੰ ਵਧਾਉਣ ਦੀ](http://www.timesherald.com/social-affairs/20140603/audubon-elementary-school-fourth-grade-students-create-buddy-bench-to-promote-inclusion) ਇੱਕ ਮਾਸੂਮ ਪਰ ਦਿਲਖਿੱਚਵੀਂ ਜੁਗਤ।
 
-- ਮੈਨੂੰ ਮੇਰੀ [ਦਾਹੜੀ](http://www.dnaindia.com/lifestyle/report-my-beard-gives-me-confidence-harnaam-kaur-1991074) ਤੋਂ ਮਿਲਦਾ ਹੈ ਆਤਮ ਵਿਸ਼ਵਾਸ - ਹਰਨਾਮ ਕੌਰ ਦਾ ਖੁਲਾਸਾ।
+- [ਪੰਜਾਬੀ ਬੈਗ ਡਿਜ਼ਾਇਨਰ ਨੇ ਅੰਤਰਰਾਸ਼ਟਰੀ ਨਾਮਣਾ ਖੱਟਿਆ ](http://timesofindia.indiatimes.com/city/chandigarh/Sikh-designers-bag-among-final-5-in-race-for-prestigious-global-award/articleshow/36078796.cms)
 
-- [ਸਰਵਣ ਸਿੰਘ](http://www.sportskeeda.com/athletics/forgotten-heroes-india-sarwan-singh-athletics/) - ਮਿੱਟੀ ਵਿੱਚ ਰੁਲ ਗਿਆ ਇੱਕ ਹੀਰਾ।
+- ਜਨਰਲ ਜੋਗਿੰਦਰ ਜਸਵੰਤ ਸਿੰਘ ਜੋ ਕਿ ਜਨਰਲ ਜੇ ਜੇ ਸਿੰਘ ਦੇ ਨਾਂ ਨਾਲ ਜਿਆਦਾ ਜਾਣੇ ਜਾਂਦੇ ਹਨ ਦੇ ਸਪੁੱਤਰ ਦੀ ਫਰਾਂਸ ਵਿੱਚ [ਪਹਿਲੇ ਸਿੱਖ ਮਿਊਂਸੀਪਲ ਕਮਿਸ਼ਨਰ](http://www.business-standard.com/article/pti-stories/gen-jj-singh-s-son-ist-sikh-to-be-municipal-comm-in-france-114060501318_1.html) ਵਜੋਂ ਨਿਯੁਕਤੀ।
 
-- ਪੰਜਾਬ ਦੇ [ਇਤਿਹਾਸ ਦੇ ਕੁੱਝ ਅੰਸ਼](http://punjabpunch.blogspot.ca/2014/05/some-useful-links-to-understand-history.html?view=classic)

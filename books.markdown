@@ -2,16 +2,4 @@
 
 <blockquote class="twitter-tweet" lang="en"><p>With a heavy heart, I remember that 30 yrs ago today the Indian Army invaded &amp; attacked the heart of the Sikh people. <a href="http://t.co/0nMBzHyt6Q">pic.twitter.com/0nMBzHyt6Q</a></p>&mdash; Jagmeet Singh (@jagmeetNDP) <a href="https://twitter.com/jagmeetNDP/statuses/474987520451944448">June 6, 2014</a></blockquote>
 
-<blockquote class="twitter-tweet" lang="en"><p>Several people injured after Sikh groups brandishing swords clashed at India&#39;s Golden Temple <a href="http://t.co/iIcFctD0Rh">http://t.co/iIcFctD0Rh</a> <a href="http://t.co/10InVbl4v4">pic.twitter.com/10InVbl4v4</a></p>&mdash; BBC News (World) (@BBCWorld) <a href="https://twitter.com/BBCWorld/statuses/474877602709397504">June 6, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p>Huge sword fight breaks out at Indian temple - <a href="http://t.co/P7iWobQ8p4">http://t.co/P7iWobQ8p4</a></p>&mdash; Richard James (@richjamesuk) <a href="https://twitter.com/richjamesuk/statuses/474877081244147712">June 6, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p><a href="https://twitter.com/search?q=%23MustRead&amp;src=hash">#MustRead</a> from <a href="https://twitter.com/GuernicaMag">@GuernicaMag</a> on the 30 year mark since the anti-Sikh massacres of 1984: &quot;Ten Thousand Pairs of Shoes&quot;&#10;<a href="http://t.co/lw14Tl4OJx">http://t.co/lw14Tl4OJx</a></p>&mdash; Simran Jeet Singh (@SimranColumbia) <a href="https://twitter.com/SimranColumbia/statuses/474983186498199553">June 6, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p>Operation Bluestar, the Sikh insurgency and its impact on future generations from <a href="https://twitter.com/mleccha">@mleccha</a>. <a href="http://t.co/qH8SY69sL3">http://t.co/qH8SY69sL3</a> <a href="https://twitter.com/search?q=%23OperationBluestar&amp;src=hash">#OperationBluestar</a></p>&mdash; newslaundry (@newslaundry) <a href="https://twitter.com/newslaundry/statuses/472715279722504192">May 31, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p><a href="https://twitter.com/search?q=%23Churchill&amp;src=hash">#Churchill</a> was very grateful that <a href="https://twitter.com/search?q=%23Sikh&amp;src=hash">#Sikh</a> people stood firm, 74 years ago <a href="http://t.co/fcjMwXzMOU">pic.twitter.com/fcjMwXzMOU</a></p>&mdash; Matthew Ward (@HistoryNeedsYou) <a href="https://twitter.com/HistoryNeedsYou/statuses/474280290823983104">June 4, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p>9 Million pages digitalised &amp; preserved by <a href="https://twitter.com/panjabdigilib">@panjabdigilib</a>! Gr8 achievement in safe guarding Panjabs heritage 4 future generations. <a href="https://twitter.com/1Force">@1Force</a></p>&mdash; Nishaan (@nishaanuk) <a href="https://twitter.com/nishaanuk/statuses/474495975097389056">June 5, 2014</a></blockquote>
-
-<blockquote class="twitter-tweet" lang="en"><p>We can’t think of a better way to kick start the weekend than a massive <a href="https://twitter.com/search?q=%23BhangraLove&amp;src=hash">#BhangraLove</a> party at the Vancouver Art... <a href="http://t.co/dGFOtDwVI4">http://t.co/dGFOtDwVI4</a></p>&mdash; VIBC (@vibc) <a href="https://twitter.com/vibc/statuses/475050780932980736">June 6, 2014</a></blockquote>
+- [Sikh writer among Australia’s best young novelists](http://timesofindia.indiatimes.com/city/chandigarh/Sikh-writer-among-Australias-best-young-novelists/articleshow/36338348.cms) <!--- Times of India -->

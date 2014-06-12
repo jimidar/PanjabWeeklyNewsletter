@@ -2,6 +2,16 @@
 
 - []()<!--- -->
 
+- [From foreign to fauj:trend changes in Doaba](http://www.hindustantimes.com/punjab/jalandhar/from-foreign-to-fauj-trend-changes-in-doaba/article1-1228499.aspx)<!--- Hindustan Times -->
+
+- [Illegal marks to be deducted from July 2009 criteria: HC](http://www.hindustantimes.com/punjab/chandigarh/illegal-marks-to-be-deducted-from-july-2009-criteria-hc/article1-1228544.aspx)<!--- Hindustan Times -->
+
+- [Punjab: Ruling party Sarpanch who had slapped woman teacher in 2011 now thrashes SDO](http://www.sikhsiyasat.net/2014/06/11/punjab-ruling-party-sarpanch-who-had-slapped-woman-teacher-in-2001-now-thrashes-sdo/)<!--- Sikh Siyasat -->
+
+- [Spicing the Pak-India “Punjabi Tango” with Gujarati Dandia could yield results.](http://ahlu-india.com/2014/06/11/spicing-the-pak-india-punjabi-tango-with-gujarati-dandia-could-yield-results/)<!--- Opinion India -->
+
+- [Controversial film Punjab 1984 celebrates its global launch in Surrey (w/ photos, video).](http://www.vancouverdesi.com/news/controversial-film-punjab-1984-celebrates-its-global-launch-in-surrey-w-photos-video/759192/)<!--- Vancouver Desi -->
+
 - [23 kg heroin seized in Punjab, five druglords held.](http://www.siasat.com/english/news/23-kg-heroin-seized-punjab-five-druglords-held)<!--- Siasat.com -->
 
 - [Punjab Govt Approves Architecture of New Chandigarh](http://www.outlookindia.com/news/article/Punjab-Govt-Approves-Architecture-of-New-Chandigarh/844033)<!--- Outlook India --> and [Punjab to get its own sports authority.](http://www.hindustantimes.com/punjab/chandigarh/punjab-to-get-its-own-sports-authority/article1-1228239.aspx)<!--- Hindustan Times -->

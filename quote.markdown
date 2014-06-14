@@ -1,4 +1,5 @@
-### MOST DANGEROUS ###
+### Quote of the week ###
+
 	The most dangerous thing is
 	to live like a dead man.
 	A life without dreams

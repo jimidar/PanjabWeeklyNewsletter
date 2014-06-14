@@ -1,14 +1,14 @@
 ### Big Stories about Punjab
 
-- [Punjab to promote fish farming, may get CIFA centre](http://timesofindia.indiatimes.com/city/chandigarh/Punjab-to-promote-fish-farming-may-get-CIFA-centre/articleshow/36460289.cms)<!--- Times of India --> and [Parkash Singh Badal seeks Rs 1 lakh crore waiver from Arun Jaitley](http://timesofindia.indiatimes.com/india/Parkash-Singh-Badal-seeks-Rs-1-lakh-crore-waiver-from-Arun-Jaitley/articleshow/36459192.cms)<!--- Times of India -->
+- [Punjab to promote fish farming, may get CIFA centre](http://timesofindia.indiatimes.com/city/chandigarh/Punjab-to-promote-fish-farming-may-get-CIFA-centre/articleshow/36460289.cms) and [Parkash Singh Badal seeks Rs 1 lakh crore waiver from Arun Jaitley](http://timesofindia.indiatimes.com/india/Parkash-Singh-Badal-seeks-Rs-1-lakh-crore-waiver-from-Arun-Jaitley/articleshow/36459192.cms) //Times of India
 
-- [From foreign to fauj:trend changes in Doaba](http://www.hindustantimes.com/punjab/jalandhar/from-foreign-to-fauj-trend-changes-in-doaba/article1-1228499.aspx)<!--- Hindustan Times -->
+- [From foreign to fauj:trend changes in Doaba](http://www.hindustantimes.com/punjab/jalandhar/from-foreign-to-fauj-trend-changes-in-doaba/article1-1228499.aspx)// Hindustan Times
 
-- [Illegal marks to be deducted from July 2009 criteria: HC](http://www.hindustantimes.com/punjab/chandigarh/illegal-marks-to-be-deducted-from-july-2009-criteria-hc/article1-1228544.aspx)<!--- Hindustan Times -->
+- [Illegal marks to be deducted from July 2009 criteria: HC](http://www.hindustantimes.com/punjab/chandigarh/illegal-marks-to-be-deducted-from-july-2009-criteria-hc/article1-1228544.aspx)// Hindustan Times
 
-- [Punjab: Ruling party Sarpanch who had slapped woman teacher in 2011 now thrashes SDO](http://www.sikhsiyasat.net/2014/06/11/punjab-ruling-party-sarpanch-who-had-slapped-woman-teacher-in-2001-now-thrashes-sdo/)<!--- Sikh Siyasat -->
+- [Punjab: Ruling party Sarpanch who had slapped woman teacher in 2011 now thrashes SDO](http://www.sikhsiyasat.net/2014/06/11/punjab-ruling-party-sarpanch-who-had-slapped-woman-teacher-in-2001-now-thrashes-sdo/)// Sikh Siyasat
 
-- [Spicing the Pak-India “Punjabi Tango” with Gujarati Dandia could yield results.](http://ahlu-india.com/2014/06/11/spicing-the-pak-india-punjabi-tango-with-gujarati-dandia-could-yield-results/)<!--- Opinion India -->
+- [Spicing the Pak-India “Punjabi Tango” with Gujarati Dandia could yield results.](http://ahlu-india.com/2014/06/11/spicing-the-pak-india-punjabi-tango-with-gujarati-dandia-could-yield-results/)// Opinion India
 
 - [23 kg heroin seized in Punjab, five druglords held.](http://www.siasat.com/english/news/23-kg-heroin-seized-punjab-five-druglords-held)<!--- Siasat.com -->
 

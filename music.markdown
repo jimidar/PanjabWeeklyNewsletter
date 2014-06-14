@@ -1,4 +1,8 @@
-[]()<!--- -->
 
+- [Rotiyan by Manpreet Manna at Panj-aab Records](http://www.youtube.com/watch?v=4OJQIseIulQ)  // youtube.com 
 
-- [Nathalia Kaur set for live singing debut in India](http://www.ianslive.in/index.php?param=news/Nathalia_Kaur_set_for_live_singing_debut_in_India-427186/ENTERTAINMENT/15)<!---ianslive -->
+- [Munda Sardara Da - Ranjit Bawa Feat. Bir Singh](http://www.youtube.com/watch?v=OU3OCySrmSY)<!--- youtube.com -->
+
+- [Tohar - Pinder Randhawa](http://www.youtube.com/watch?v=koETed8XvTE)<!--- youtube.com -->
+
+- [Yaariyan by Babbal Rai. Album: Girlfriend](http://www.youtube.com/watch?v=9fSSPepptk4)<!--- youtube.com -->

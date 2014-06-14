@@ -10,19 +10,13 @@
 
 - [Spicing the Pak-India “Punjabi Tango” with Gujarati Dandia could yield results.](http://ahlu-india.com/2014/06/11/spicing-the-pak-india-punjabi-tango-with-gujarati-dandia-could-yield-results/)<!--- Opinion India -->
 
-- [Controversial film Punjab 1984 celebrates its global launch in Surrey (w/ photos, video).](http://www.vancouverdesi.com/news/controversial-film-punjab-1984-celebrates-its-global-launch-in-surrey-w-photos-video/759192/)<!--- Vancouver Desi -->
-
 - [23 kg heroin seized in Punjab, five druglords held.](http://www.siasat.com/english/news/23-kg-heroin-seized-punjab-five-druglords-held)<!--- Siasat.com -->
 
 - [Punjab Govt Approves Architecture of New Chandigarh](http://www.outlookindia.com/news/article/Punjab-Govt-Approves-Architecture-of-New-Chandigarh/844033)<!--- Outlook India --> and [Punjab to get its own sports authority.](http://www.hindustantimes.com/punjab/chandigarh/punjab-to-get-its-own-sports-authority/article1-1228239.aspx)<!--- Hindustan Times -->
 
-- [Make Anandpur Sahib green city: EcoSikh.](http://jagopunjabjagoindia.com/make-anandpur-sahib-green-city-ecosikh-32652)<!--- Jago Punjab Jago India --> [Punjab’s ruling party Badal Dal’s leader accused of selling Takht Kesgarh Sahib land.](http://www.sikhsiyasat.net/2014/06/10/punjabs-ruling-party-badal-dals-leader-accused-of-selling-takht-kesgarh-sahib-land/) In another news, [Two Cr saplings to be planted in Punjab](http://www.business-standard.com/article/pti-stories/two-cr-saplings-to-be-planted-in-punjab-114061200948_1.html)<!--- Business Standard -->
+- [Make Anandpur Sahib green city: EcoSikh.](http://jagopunjabjagoindia.com/make-anandpur-sahib-green-city-ecosikh-32652)<!--- Jago Punjab Jago India --> In another news, [Two Cr saplings to be planted in Punjab](http://www.business-standard.com/article/pti-stories/two-cr-saplings-to-be-planted-in-punjab-114061200948_1.html)<!--- Business Standard -->
 
 - [Punjab's paddy straw burning impacts climate, health.](http://www.business-standard.com/article/news-ians/punjab-s-paddy-straw-burning-impacts-climate-health-114061000569_1.html)<!--- Business Standard -->
-
-- [Punjab govt asks health employees to be accountable.](http://www.business-standard.com/article/pti-stories/punjab-govt-asks-health-employees-to-be-accountable-114061001072_1.html)<!--- Business Standard -->
-
-- [WPC to hold moot on Punjabi language, culture on June 22.](http://www.dailytimes.com.pk/national/10-Jun-2014/wpc-to-hold-moot-on-punjabi-language-culture-on-june-22)<!--- Daily Times -->
 
 - [Objections over names of liquor.](http://timesofindia.indiatimes.com/india/Objections-over-names-of-liquor/articleshow/36310117.cms)<!--- Times of India -->
  
@@ -33,12 +27,6 @@
 - [After Badal’s tour, Punjab officials take stock of air pollution in Kanakwal, assure villagers of help.](http://indianexpress.com/article/cities/chandigarh/officials-visit-kanakwal-village-to-redress-grievance-over-air-pollution/) <!--- Indian Express -->
 
 - [Former Punjab DGP Sharma Charged With Murder.](http://thelinkpaper.ca/?p=38147) <!--- The Link -->
-
-- [Woman Loses Foetus After Police Assault](http://thelinkpaper.ca/?p=38132) <!--- The Link -->
-
-- [Smoking ban goes up in smoke in PU](http://timesofindia.indiatimes.com/city/chandigarh/Smoking-ban-goes-up-in-smoke-in-PU/articleshow/36268066.cms)<!--- Times of India-->
-
-- 
 
 ### Technology
 
@@ -53,7 +41,7 @@
 - [Bluetooth-Controlled LED Bulbs That Create Their Own Wireless Network](http://gizmodo.com/bluetooth-controlled-led-bulbs-that-create-their-own-wi-1585962628)<!--- Gizmodo.com -->
 
 
-//### Business
+<!--- ### Business -->
 
 ### Art
 
@@ -89,3 +77,5 @@
 	Email : shaktisociety2000@gmail.com <!--- Desi Events -->
 
 - [Punjabi Tashan Live in Woolgoolga on Wednesday 18th June 2014](http://singh.com.au/punjabi-tashan-live-in-woolgoolga-on-wednesday-18th-june-2014/) <!--- singh.com.au -->
+
+- [WPC to hold moot on Punjabi language, culture on June 22.](http://www.dailytimes.com.pk/national/10-Jun-2014/wpc-to-hold-moot-on-punjabi-language-culture-on-june-22)<!--- Daily Times -->

@@ -1,8 +1,8 @@
 ### Quote of the week ###
 
-	The most dangerous thing is
-	to live like a dead man.
-	A life without dreams
-	that is the most dangerous thing.
-
- ~ [Paash, alias for Avtar Singh Sandhu](http://en.wikipedia.org/wiki/Pash) (1950 – 1988), Translated by Suresh Sethi
+	ਬੇ ਬੰਨ੍ਹ ਚਲਾਇਆ ਤਰਫ਼ ਜ਼ਿੰਮੀਂ ਦੇ, ਅਰਸ਼ੋਂ ਫ਼ਰਸ਼ ਟਿਕਾਇਆ ਹੂ।
+	ਘਰ ਥੀਂ ਮਿਲਿਆ ਦੇਸ਼ ਨਿਕਾਲਾ, ਅਸਾਂ ਲਿਖਿਆ ਝੋਲੀ ਪਾਇਆ ਹੂ।
+	ਰਹੁ ਨੀ ਦੁਨੀਆ ਨ ਕਰ ਝੇੜਾ, ਸਾਡਾ ਅੱਗੇ ਦਿਲ ਘਬਰਾਇਆ ਹੂ।
+	ਅਸੀਂ ਪਰਦੇਸੀ ਸਾਡਾ ਵਤਨ ਦੁਰਾਡਾ, ਬਾਹੂ ਦਮ ਦਮ ਗ਼ਮ ਸਾਵਾਯਾ ਹੂ।।
+	
+ ~ [Sultan Bahu](http://en.wikipedia.org/wiki/Sultan_Bahu) (1630–1691)

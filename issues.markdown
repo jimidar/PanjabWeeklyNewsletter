@@ -1,32 +1,15 @@
 ### Big Stories about Punjab
 
-- [Punjab to promote fish farming, may get CIFA centre](http://timesofindia.indiatimes.com/city/chandigarh/Punjab-to-promote-fish-farming-may-get-CIFA-centre/articleshow/36460289.cms) and [Parkash Singh Badal seeks Rs 1 lakh crore waiver from Arun Jaitley](http://timesofindia.indiatimes.com/india/Parkash-Singh-Badal-seeks-Rs-1-lakh-crore-waiver-from-Arun-Jaitley/articleshow/36459192.cms) //Times of India
+- []() 
+- [Maharaja Ranjit Singh](http://timesofindia.indiatimes.com/city/chandigarh/Maharaja-Ranjit-Singh-monuments-in-utter-neglect/articleshow/37421038.cms) monuments in utter neglect
 
-- [From foreign to fauj:trend changes in Doaba](http://www.hindustantimes.com/punjab/jalandhar/from-foreign-to-fauj-trend-changes-in-doaba/article1-1228499.aspx)// Hindustan Times
+- [Clean Satluj gets toxic as it flows through Punjab: PPCB report](http://timesofindia.indiatimes.com/city/chandigarh/Clean-Satluj-gets-toxic-as-it-flows-through-Punjab-PPCB-report/articleshow/37421104.cms)
 
-- [Illegal marks to be deducted from July 2009 criteria: HC](http://www.hindustantimes.com/punjab/chandigarh/illegal-marks-to-be-deducted-from-july-2009-criteria-hc/article1-1228544.aspx)// Hindustan Times
+- [Child drug addiction](http://www.dailymail.co.uk/indiahome/indianews/article-2673539/Child-drug-addiction-soars-Punjab-peddlers-target-pre-teens-born-dependency.html)soars in Punjab as peddlers target pre-teens some of whom are born into dependency
 
-- [Punjab: Ruling party Sarpanch who had slapped woman teacher in 2011 now thrashes SDO](http://www.sikhsiyasat.net/2014/06/11/punjab-ruling-party-sarpanch-who-had-slapped-woman-teacher-in-2001-now-thrashes-sdo/)// Sikh Siyasat
+- Reforms in [Punjab Police exposed](http://www.nation.com.pk/lahore/29-Jun-2014/reforms-in-punjab-police-exposed?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+pakistan-news-newspaper-daily-english-online%2F24hours-news+(The+Nation+%3A+Latest+News))
 
-- [Spicing the Pak-India “Punjabi Tango” with Gujarati Dandia could yield results.](http://ahlu-india.com/2014/06/11/spicing-the-pak-india-punjabi-tango-with-gujarati-dandia-could-yield-results/)// Opinion India
-
-- [23 kg heroin seized in Punjab, five druglords held.](http://www.siasat.com/english/news/23-kg-heroin-seized-punjab-five-druglords-held)// Siasat.com 
-
-- [Punjab Govt Approves Architecture of New Chandigarh](http://www.outlookindia.com/news/article/Punjab-Govt-Approves-Architecture-of-New-Chandigarh/844033) and [Punjab to get its own sports authority.](http://www.hindustantimes.com/punjab/chandigarh/punjab-to-get-its-own-sports-authority/article1-1228239.aspx) //Outlook India and Hindustan Times
-
-- [Make Anandpur Sahib green city: EcoSikh.](http://jagopunjabjagoindia.com/make-anandpur-sahib-green-city-ecosikh-32652) In another news, [Two Cr saplings to be planted in Punjab](http://www.business-standard.com/article/pti-stories/two-cr-saplings-to-be-planted-in-punjab-114061200948_1.html) //Jago Punjab Jago India and Business Standard
-
-- [Punjab's paddy straw burning impacts climate, health.](http://www.business-standard.com/article/news-ians/punjab-s-paddy-straw-burning-impacts-climate-health-114061000569_1.html)// Business Standard
-
-- [Objections over names of liquor.](http://timesofindia.indiatimes.com/india/Objections-over-names-of-liquor/articleshow/36310117.cms) //Times of India
- 
-- [2,600 buses off in Punjab if demands not met.](http://www.business-standard.com/article/current-affairs/2-600-buses-off-in-punjab-if-demands-not-met-114060901127_1.html) In another news [15 employees found absent in raid by Punjab Transport Minister.](http://www.business-standard.com/article/pti-stories/15-employees-found-absent-in-raid-by-punjab-transport-minister-114060900617_1.html)//Business Standard and Business Standard
-
-- [Textile industry in Western Punjab demands smooth power supply](http://www.nation.com.pk/business/08-Jun-2014/textile-industry-in-punjab-demands-smooth-power-supply) and [Eastern Punjab allotted 96 lakh units daily from unallocated share.](http://indianpowersector.com/home/2014/06/punjab-allotted-96-lakh-units-daily-from-unallocated-share/) along with this [Punjab discom to replace transformers under OYT.](http://www.thehindubusinessline.com/news/states/punjab-discom-to-replace-transformers-under-oyt/article6094768.ece) //The Nation, Indian Power Sector, and The Hindu Business line
-
-- [After Badal’s tour, Punjab officials take stock of air pollution in Kanakwal, assure villagers of help.](http://indianexpress.com/article/cities/chandigarh/officials-visit-kanakwal-village-to-redress-grievance-over-air-pollution/) //Indian Express
-
-- [Former Punjab DGP Sharma Charged With Murder.](http://thelinkpaper.ca/?p=38147) //The Link
+- [Punjab education dept owes Rs. 5-crore rent to PSEB](http://www.hindustantimes.com/punjab/chandigarh/punjab-education-dept-owes-rs-5-crore-rent-to-pseb/article1-1234825.aspx) 
 
 ### Technology
 

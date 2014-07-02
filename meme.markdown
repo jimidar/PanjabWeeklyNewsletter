@@ -1,11 +1,16 @@
-- [money does not grow on backyard tree.](https://vine.co/v/MpxFILLlaBV)
 
-- [moohrey Jatt Kharkoo Kharha](https://vine.co/v/h9Hwdh7bVMa)
+- [Vegeterian's Problem](http://vinebox.co/u/wuMlSq2ZNx5/wl285rPzcr7) 
 
-- [Born Punjabi](https://www.facebook.com/photo.php?fbid=553421661414775&set=a.381536385269971.89183.381525178604425&type=1&relevant_count=1)
+- [Brown girls on google be like](http://vinebox.co/u/wkOMpAw3ShJ/wkAA1E0jgxU) 
 
-- [kahto'n begana munda tabaah karna](https://vine.co/v/MZtX5BDZ1Ur)
+- [Last Roti](http://vinebox.co/u/woQHfn6eOmJ/wl287m96EY3)
 
-- [girls and Bindi problem](https://vine.co/v/MHw6WKwLTlB)
+- [Dudh milega..??](http://vinebox.co/u/wkOMpAw3ShJ/wkDuBEeW4IT) 
 
-- [Sorry put the blame on'em](https://vine.co/v/MM3BuIID7Pe)
+- [Reason not to go on parties](http://vinebox.co/u/wfxn3AnpmyX/wl6hKweRJdn)
+
+- [Speeding Ticket](http://vinebox.co/u/wdYuIjAbO1n/wl62iK9X1qq)
+
+- [Rotti Daff Lain dao](http://vinebox.co/u/wkQ20CDGyxx/wl665NkKpjt) 
+
+- [Munda iPhone warga](http://vinebox.co/u/wazIwpB8X4T/wlX8BWcwTBe) 
